@@ -1,0 +1,1 @@
+So Samuel turned again after Saul; and Saul worshipped the LORD.

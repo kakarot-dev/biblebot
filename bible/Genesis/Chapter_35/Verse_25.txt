@@ -1,0 +1,1 @@
+And the sons of Bilhah, Rachel's handmaid; Dan, and Naphtali:

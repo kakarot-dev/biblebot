@@ -1,0 +1,1 @@
+They give drink to every beast of the field: the wild asses quench their thirst.

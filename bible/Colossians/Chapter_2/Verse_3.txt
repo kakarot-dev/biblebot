@@ -1,0 +1,1 @@
+In whom are hid all the treasures of wisdom and knowledge.

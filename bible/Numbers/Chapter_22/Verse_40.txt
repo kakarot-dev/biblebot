@@ -1,0 +1,1 @@
+And Balak offered oxen and sheep, and sent to Balaam, and to the princes that were with him.

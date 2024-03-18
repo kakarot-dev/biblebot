@@ -1,0 +1,1 @@
+Afterwards I came into the regions of Syria and Cilicia;

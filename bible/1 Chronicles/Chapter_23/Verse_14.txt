@@ -1,0 +1,1 @@
+Now concerning Moses the man of God, his sons were named of the tribe of Levi.

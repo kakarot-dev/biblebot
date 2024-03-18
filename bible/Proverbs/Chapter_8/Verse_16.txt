@@ -1,0 +1,1 @@
+By me princes rule, and nobles, even all the judges of the earth.

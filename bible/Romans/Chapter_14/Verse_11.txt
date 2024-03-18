@@ -1,0 +1,1 @@
+For it is written, As I live, saith the Lord, every knee shall bow to me, and every tongue shall confess to God.

@@ -1,0 +1,1 @@
+And now, behold, Adonijah reigneth; and now, my lord the king, thou knowest it not:

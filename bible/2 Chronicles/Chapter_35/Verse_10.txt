@@ -1,0 +1,1 @@
+So the service was prepared, and the priests stood in their place, and the Levites in their courses, according to the king's commandment.

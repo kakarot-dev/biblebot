@@ -1,0 +1,1 @@
+Strangers shall fade away, and they shall be afraid out of their close places.

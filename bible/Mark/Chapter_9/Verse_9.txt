@@ -1,0 +1,1 @@
+And as they came down from the mountain, he charged them that they should tell no man what things they had seen, till the Son of man were risen from the dead.

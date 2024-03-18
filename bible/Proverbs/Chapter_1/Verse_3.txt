@@ -1,0 +1,1 @@
+To receive the instruction of wisdom, justice, and judgment, and equity;

@@ -1,0 +1,1 @@
+And enquired not of the LORD: therefore he slew him, and turned the kingdom unto David the son of Jesse.

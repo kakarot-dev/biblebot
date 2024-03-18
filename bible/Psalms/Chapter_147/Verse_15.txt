@@ -1,0 +1,1 @@
+He sendeth forth his commandment upon earth: his word runneth very swiftly.

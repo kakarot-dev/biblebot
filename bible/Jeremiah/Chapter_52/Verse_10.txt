@@ -1,0 +1,1 @@
+And the king of Babylon slew the sons of Zedekiah before his eyes: he slew also all the princes of Judah in Riblah.

@@ -1,0 +1,1 @@
+The sun ariseth, they gather themselves together, and lay them down in their dens.

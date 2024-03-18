@@ -1,0 +1,1 @@
+And they set them up images and groves in every high hill, and under every green tree:

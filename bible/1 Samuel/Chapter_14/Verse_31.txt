@@ -1,0 +1,1 @@
+And they smote the Philistines that day from Michmash to Aijalon: and the people were very faint.

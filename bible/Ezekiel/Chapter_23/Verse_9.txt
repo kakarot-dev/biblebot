@@ -1,0 +1,1 @@
+Wherefore I have delivered her into the hand of her lovers, into the hand of the Assyrians, upon whom she doted.

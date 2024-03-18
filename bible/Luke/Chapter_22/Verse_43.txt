@@ -1,0 +1,1 @@
+And there appeared an angel unto him from heaven, strengthening him.

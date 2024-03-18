@@ -1,0 +1,1 @@
+For jealousy is the rage of a man: therefore he will not spare in the day of vengeance.

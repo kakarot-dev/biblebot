@@ -1,0 +1,1 @@
+And after they were brought to Babylon, Jechonias begat Salathiel; and Salathiel begat Zorobabel;

@@ -1,0 +1,1 @@
+The shady trees cover him with their shadow; the willows of the brook compass him about.

@@ -1,0 +1,1 @@
+And the sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz.

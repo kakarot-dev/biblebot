@@ -1,0 +1,1 @@
+Why is light given to a man whose way is hid, and whom God hath hedged in?

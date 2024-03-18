@@ -1,0 +1,1 @@
+Therefore David enquired of the LORD, saying, Shall I go and smite these Philistines? And the LORD said unto David, Go, and smite the Philistines, and save Keilah.

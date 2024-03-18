@@ -1,0 +1,1 @@
+That they might observe his statutes, and keep his laws. Praise ye the LORD.

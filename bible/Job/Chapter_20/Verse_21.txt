@@ -1,0 +1,1 @@
+There shall none of his meat be left; therefore shall no man look for his goods.

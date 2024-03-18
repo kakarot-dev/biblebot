@@ -1,0 +1,1 @@
+And they departed, and dwelt in the habitation of Chimham, which is by Bethlehem, to go to enter into Egypt,

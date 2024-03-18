@@ -1,0 +1,1 @@
+For now we live, if ye stand fast in the Lord.

@@ -1,0 +1,1 @@
+And when the ten heard it, they began to be much displeased with James and John.

@@ -1,0 +1,1 @@
+And the south quarter was from the end of Kirjathjearim, and the border went out on the west, and went out to the well of waters of Nephtoah:

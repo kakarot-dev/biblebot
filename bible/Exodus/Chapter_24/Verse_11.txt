@@ -1,0 +1,1 @@
+And upon the nobles of the children of Israel he laid not his hand: also they saw God, and did eat and drink.

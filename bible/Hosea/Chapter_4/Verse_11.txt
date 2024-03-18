@@ -1,0 +1,1 @@
+Whoredom and wine and new wine take away the heart.

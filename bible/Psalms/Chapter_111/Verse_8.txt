@@ -1,0 +1,1 @@
+They stand fast for ever and ever, and are done in truth and uprightness.

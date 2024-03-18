@@ -1,0 +1,1 @@
+In the fifth day of the month, which was the fifth year of king Jehoiachin's captivity,

@@ -1,0 +1,1 @@
+And Kedesh, and Hazor, and Ithnan,

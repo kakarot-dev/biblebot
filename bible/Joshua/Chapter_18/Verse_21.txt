@@ -1,0 +1,1 @@
+Now the cities of the tribe of the children of Benjamin according to their families were Jericho, and Bethhoglah, and the valley of Keziz,

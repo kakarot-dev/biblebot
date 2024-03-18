@@ -1,0 +1,1 @@
+And Asa did that which was right in the eyes of the LORD, as did David his father.

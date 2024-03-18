@@ -1,0 +1,1 @@
+He draweth also the mighty with his power: he riseth up, and no man is sure of life.

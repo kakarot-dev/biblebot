@@ -1,0 +1,1 @@
+For the preaching of the cross is to them that perish foolishness; but unto us which are saved it is the power of God.

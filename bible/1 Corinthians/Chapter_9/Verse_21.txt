@@ -1,0 +1,1 @@
+To them that are without law, as without law, (being not without law to God, but under the law to Christ,) that I might gain them that are without law.

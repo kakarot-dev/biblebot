@@ -1,0 +1,1 @@
+But these speak evil of those things which they know not: but what they know naturally, as brute beasts, in those things they corrupt themselves.

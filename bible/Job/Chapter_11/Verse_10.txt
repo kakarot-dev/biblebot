@@ -1,0 +1,1 @@
+If he cut off, and shut up, or gather together, then who can hinder him?

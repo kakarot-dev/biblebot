@@ -1,0 +1,1 @@
+And Benhadad hearkened unto king Asa, and sent the captains of his armies against the cities of Israel; and they smote Ijon, and Dan, and Abelmaim, and all the store cities of Naphtali.

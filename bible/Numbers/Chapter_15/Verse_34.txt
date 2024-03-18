@@ -1,0 +1,1 @@
+And they put him in ward, because it was not declared what should be done to him.

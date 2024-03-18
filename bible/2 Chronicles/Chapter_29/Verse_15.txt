@@ -1,0 +1,1 @@
+And they gathered their brethren, and sanctified themselves, and came, according to the commandment of the king, by the words of the LORD, to cleanse the house of the LORD.

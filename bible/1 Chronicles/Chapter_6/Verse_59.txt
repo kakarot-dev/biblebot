@@ -1,0 +1,1 @@
+And Ashan with her suburbs, and Bethshemesh with her suburbs:

@@ -1,0 +1,1 @@
+And a certain man saw it, and told Joab, and said, Behold, I saw Absalom hanged in an oak.

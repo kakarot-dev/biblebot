@@ -1,0 +1,1 @@
+It cannot be gotten for gold, neither shall silver be weighed for the price thereof.

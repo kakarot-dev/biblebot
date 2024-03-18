@@ -1,0 +1,1 @@
+And he left them, and went out of the city into Bethany; and he lodged there.

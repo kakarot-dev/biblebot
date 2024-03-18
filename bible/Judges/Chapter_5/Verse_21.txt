@@ -1,0 +1,1 @@
+The river of Kishon swept them away, that ancient river, the river Kishon. O my soul, thou hast trodden down strength.

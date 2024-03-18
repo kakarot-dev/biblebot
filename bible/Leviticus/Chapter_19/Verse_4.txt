@@ -1,0 +1,1 @@
+Turn ye not unto idols, nor make to yourselves molten gods: I am the LORD your God.

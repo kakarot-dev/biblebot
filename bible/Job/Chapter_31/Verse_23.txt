@@ -1,0 +1,1 @@
+For destruction from God was a terror to me, and by reason of his highness I could not endure.

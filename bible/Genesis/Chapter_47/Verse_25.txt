@@ -1,0 +1,1 @@
+And they said, Thou hast saved our lives: let us find grace in the sight of my lord, and we will be Pharaoh's servants.

@@ -1,0 +1,1 @@
+Thou shalt not uncover the nakedness of thy brother's wife: it is thy brother's nakedness.

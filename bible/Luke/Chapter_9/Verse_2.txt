@@ -1,0 +1,1 @@
+And he sent them to preach the kingdom of God, and to heal the sick.

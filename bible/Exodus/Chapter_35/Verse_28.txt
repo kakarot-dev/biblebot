@@ -1,0 +1,1 @@
+And spice, and oil for the light, and for the anointing oil, and for the sweet incense.

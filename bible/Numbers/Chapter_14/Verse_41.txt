@@ -1,0 +1,1 @@
+And Moses said, Wherefore now do ye transgress the commandment of the LORD? but it shall not prosper.

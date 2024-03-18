@@ -1,0 +1,1 @@
+The voice of rejoicing and salvation is in the tabernacles of the righteous: the right hand of the LORD doeth valiantly.

@@ -1,0 +1,1 @@
+If he set his heart upon man, if he gather unto himself his spirit and his breath;

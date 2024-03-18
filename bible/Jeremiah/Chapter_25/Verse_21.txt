@@ -1,0 +1,1 @@
+Edom, and Moab, and the children of Ammon,

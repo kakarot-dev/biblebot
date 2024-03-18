@@ -1,0 +1,1 @@
+And she said, Drink, my lord: and she hasted, and let down her pitcher upon her hand, and gave him drink.

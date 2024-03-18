@@ -1,0 +1,1 @@
+The fool foldeth his hands together, and eateth his own flesh.

@@ -1,0 +1,1 @@
+And as for me, thou upholdest me in mine integrity, and settest me before thy face for ever.

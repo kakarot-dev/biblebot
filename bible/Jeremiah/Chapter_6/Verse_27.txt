@@ -1,0 +1,1 @@
+I have set thee for a tower and a fortress among my people, that thou mayest know and try their way.

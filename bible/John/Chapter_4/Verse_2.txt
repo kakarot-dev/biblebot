@@ -1,0 +1,1 @@
+(Though Jesus himself baptized not, but his disciples,)

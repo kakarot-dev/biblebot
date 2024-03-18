@@ -1,0 +1,1 @@
+Even us, whom he hath called, not of the Jews only, but also of the Gentiles?

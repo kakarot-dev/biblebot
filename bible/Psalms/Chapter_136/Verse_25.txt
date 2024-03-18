@@ -1,0 +1,1 @@
+Who giveth food to all flesh: for his mercy endureth for ever.

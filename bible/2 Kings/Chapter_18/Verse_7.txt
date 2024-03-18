@@ -1,0 +1,1 @@
+And the LORD was with him; and he prospered whithersoever he went forth: and he rebelled against the king of Assyria, and served him not.

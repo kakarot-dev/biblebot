@@ -1,0 +1,1 @@
+And on the second day ye shall offer twelve young bullocks, two rams, fourteen lambs of the first year without spot:

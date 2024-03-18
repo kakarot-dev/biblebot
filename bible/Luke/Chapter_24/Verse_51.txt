@@ -1,0 +1,1 @@
+And it came to pass, while he blessed them, he was parted from them, and carried up into heaven.

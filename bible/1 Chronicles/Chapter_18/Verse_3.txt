@@ -1,0 +1,1 @@
+And David smote Hadarezer king of Zobah unto Hamath, as he went to stablish his dominion by the river Euphrates.

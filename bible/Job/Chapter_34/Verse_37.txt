@@ -1,0 +1,1 @@
+For he addeth rebellion unto his sin, he clappeth his hands among us, and multiplieth his words against God.

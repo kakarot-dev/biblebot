@@ -1,0 +1,1 @@
+Open thy mouth, judge righteously, and plead the cause of the poor and needy.

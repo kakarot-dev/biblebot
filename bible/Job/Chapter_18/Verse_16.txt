@@ -1,0 +1,1 @@
+His roots shall be dried up beneath, and above shall his branch be cut off.

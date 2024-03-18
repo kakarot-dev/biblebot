@@ -1,0 +1,1 @@
+And they talked together of all these things which had happened.

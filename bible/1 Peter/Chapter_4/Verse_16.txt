@@ -1,0 +1,1 @@
+Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.

@@ -1,0 +1,1 @@
+And Jabez was more honourable than his brethren: and his mother called his name Jabez, saying, Because I bare him with sorrow.

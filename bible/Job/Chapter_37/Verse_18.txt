@@ -1,0 +1,1 @@
+Hast thou with him spread out the sky, which is strong, and as a molten looking glass?

@@ -1,0 +1,1 @@
+And he shall carry forth the bullock without the camp, and burn him as he burned the first bullock: it is a sin offering for the congregation.

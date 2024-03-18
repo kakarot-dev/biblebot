@@ -1,0 +1,1 @@
+And when they had brought their ships to land, they forsook all, and followed him.

@@ -1,0 +1,1 @@
+And it came to pass, that, when I was come again to Jerusalem, even while I prayed in the temple, I was in a trance;

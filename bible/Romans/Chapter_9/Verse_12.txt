@@ -1,0 +1,1 @@
+It was said unto her, The elder shall serve the younger.

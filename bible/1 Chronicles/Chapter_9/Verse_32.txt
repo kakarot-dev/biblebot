@@ -1,0 +1,1 @@
+And other of their brethren, of the sons of the Kohathites, were over the shewbread, to prepare it every sabbath.

@@ -1,0 +1,1 @@
+So Joshua made a covenant with the people that day, and set them a statute and an ordinance in Shechem.

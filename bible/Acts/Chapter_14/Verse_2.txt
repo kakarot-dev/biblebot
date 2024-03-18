@@ -1,0 +1,1 @@
+But the unbelieving Jews stirred up the Gentiles, and made their minds evil affected against the brethren.

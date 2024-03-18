@@ -1,0 +1,1 @@
+They that observe lying vanities forsake their own mercy.

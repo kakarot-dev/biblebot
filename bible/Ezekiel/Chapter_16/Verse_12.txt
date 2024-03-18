@@ -1,0 +1,1 @@
+And I put a jewel on thy forehead, and earrings in thine ears, and a beautiful crown upon thine head.

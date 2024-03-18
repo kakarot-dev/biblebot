@@ -1,0 +1,1 @@
+He taketh the wise in their own craftiness: and the counsel of the froward is carried headlong.

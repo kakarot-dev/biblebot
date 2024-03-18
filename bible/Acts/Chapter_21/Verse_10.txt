@@ -1,0 +1,1 @@
+And as we tarried there many days, there came down from Judaea a certain prophet, named Agabus.

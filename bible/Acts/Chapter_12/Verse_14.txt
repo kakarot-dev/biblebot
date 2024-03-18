@@ -1,0 +1,1 @@
+And when she knew Peter's voice, she opened not the gate for gladness, but ran in, and told how Peter stood before the gate.

@@ -1,0 +1,1 @@
+And the magicians did so with their enchantments, and brought up frogs upon the land of Egypt.

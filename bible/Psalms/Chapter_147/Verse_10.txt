@@ -1,0 +1,1 @@
+He delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.

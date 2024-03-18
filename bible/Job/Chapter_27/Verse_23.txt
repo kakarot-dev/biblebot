@@ -1,0 +1,1 @@
+Men shall clap their hands at him, and shall hiss him out of his place.

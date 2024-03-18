@@ -1,0 +1,1 @@
+When the ear heard me, then it blessed me; and when the eye saw me, it gave witness to me:

@@ -1,0 +1,1 @@
+Ekron, with her towns and her villages:

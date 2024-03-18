@@ -1,0 +1,1 @@
+Then came she and worshipped him, saying, Lord, help me.

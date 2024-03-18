@@ -1,0 +1,1 @@
+Because I was not cut off before the darkness, neither hath he covered the darkness from my face.

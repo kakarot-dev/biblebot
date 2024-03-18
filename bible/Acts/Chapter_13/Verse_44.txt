@@ -1,0 +1,1 @@
+And the next sabbath day came almost the whole city together to hear the word of God.

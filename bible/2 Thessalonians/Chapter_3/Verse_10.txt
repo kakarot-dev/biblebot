@@ -1,0 +1,1 @@
+For even when we were with you, this we commanded you, that if any would not work, neither should he eat.

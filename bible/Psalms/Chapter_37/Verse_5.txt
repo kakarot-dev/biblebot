@@ -1,0 +1,1 @@
+Commit thy way unto the LORD; trust also in him; and he shall bring it to pass.

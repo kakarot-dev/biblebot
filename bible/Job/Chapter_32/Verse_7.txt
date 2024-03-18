@@ -1,0 +1,1 @@
+I said, Days should speak, and multitude of years should teach wisdom.

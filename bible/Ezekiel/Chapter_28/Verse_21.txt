@@ -1,0 +1,1 @@
+Son of man, set thy face against Zidon, and prophesy against it,

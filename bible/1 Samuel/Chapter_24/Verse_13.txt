@@ -1,0 +1,1 @@
+As saith the proverb of the ancients, Wickedness proceedeth from the wicked: but mine hand shall not be upon thee.

@@ -1,0 +1,1 @@
+But Omri wrought evil in the eyes of the LORD, and did worse than all that were before him.

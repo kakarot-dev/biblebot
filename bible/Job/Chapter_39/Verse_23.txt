@@ -1,0 +1,1 @@
+The quiver rattleth against him, the glittering spear and the shield.

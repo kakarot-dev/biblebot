@@ -1,0 +1,1 @@
+They make the king glad with their wickedness, and the princes with their lies.

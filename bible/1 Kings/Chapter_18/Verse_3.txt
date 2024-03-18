@@ -1,0 +1,1 @@
+And Ahab called Obadiah, which was the governor of his house. (Now Obadiah feared the LORD greatly:

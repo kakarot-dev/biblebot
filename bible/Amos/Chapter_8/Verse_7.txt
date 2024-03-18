@@ -1,0 +1,1 @@
+The LORD hath sworn by the excellency of Jacob, Surely I will never forget any of their works.

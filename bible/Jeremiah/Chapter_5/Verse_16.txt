@@ -1,0 +1,1 @@
+Their quiver is as an open sepulchre, they are all mighty men.

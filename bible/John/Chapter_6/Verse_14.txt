@@ -1,0 +1,1 @@
+Then those men, when they had seen the miracle that Jesus did, said, This is of a truth that prophet that should come into the world.

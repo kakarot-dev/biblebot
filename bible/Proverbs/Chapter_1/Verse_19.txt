@@ -1,0 +1,1 @@
+So are the ways of every one that is greedy of gain; which taketh away the life of the owners thereof.

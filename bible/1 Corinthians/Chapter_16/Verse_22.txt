@@ -1,0 +1,1 @@
+If any man love not the Lord Jesus Christ, let him be Anathema Maranatha.

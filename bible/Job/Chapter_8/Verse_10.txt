@@ -1,0 +1,1 @@
+Shall not they teach thee, and tell thee, and utter words out of their heart?

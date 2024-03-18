@@ -1,0 +1,1 @@
+And Manoah said unto his wife, We shall surely die, because we have seen God.

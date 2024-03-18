@@ -1,0 +1,1 @@
+And Saul said unto Ahiah, Bring hither the ark of God. For the ark of God was at that time with the children of Israel.

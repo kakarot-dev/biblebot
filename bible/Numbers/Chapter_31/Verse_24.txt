@@ -1,0 +1,1 @@
+And ye shall wash your clothes on the seventh day, and ye shall be clean, and afterward ye shall come into the camp.

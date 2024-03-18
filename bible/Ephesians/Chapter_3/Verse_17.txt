@@ -1,0 +1,1 @@
+That Christ may dwell in your hearts by faith; that ye, being rooted and grounded in love,

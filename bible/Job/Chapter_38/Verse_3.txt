@@ -1,0 +1,1 @@
+Gird up now thy loins like a man; for I will demand of thee, and answer thou me.

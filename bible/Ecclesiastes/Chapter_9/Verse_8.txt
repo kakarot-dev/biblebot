@@ -1,0 +1,1 @@
+Let thy garments be always white; and let thy head lack no ointment.

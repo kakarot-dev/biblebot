@@ -1,0 +1,1 @@
+And divide the prey into two parts; between them that took the war upon them, who went out to battle, and between all the congregation:

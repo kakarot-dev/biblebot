@@ -1,0 +1,1 @@
+And he that is courageous among the mighty shall flee away naked in that day, saith the LORD.

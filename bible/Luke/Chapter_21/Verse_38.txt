@@ -1,0 +1,1 @@
+And all the people came early in the morning to him in the temple, for to hear him.

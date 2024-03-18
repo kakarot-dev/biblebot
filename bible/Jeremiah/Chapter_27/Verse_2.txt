@@ -1,0 +1,1 @@
+Thus saith the LORD to me; Make thee bonds and yokes, and put them upon thy neck,

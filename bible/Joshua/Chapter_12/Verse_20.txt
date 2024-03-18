@@ -1,0 +1,1 @@
+The king of Shimronmeron, one; the king of Achshaph, one;

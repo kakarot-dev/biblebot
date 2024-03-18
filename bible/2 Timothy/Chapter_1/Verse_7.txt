@@ -1,0 +1,1 @@
+For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.

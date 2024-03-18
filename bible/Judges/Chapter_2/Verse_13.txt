@@ -1,0 +1,1 @@
+And they forsook the LORD, and served Baal and Ashtaroth.

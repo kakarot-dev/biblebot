@@ -1,0 +1,1 @@
+The king of Kedesh, one; the king of Jokneam of Carmel, one;

@@ -1,0 +1,1 @@
+But we know that the law is good, if a man use it lawfully;

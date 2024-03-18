@@ -1,0 +1,1 @@
+Let not an evil speaker be established in the earth: evil shall hunt the violent man to overthrow him.

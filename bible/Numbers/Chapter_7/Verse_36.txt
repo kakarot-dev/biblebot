@@ -1,0 +1,1 @@
+On the fifth day Shelumiel the son of Zurishaddai, prince of the children of Simeon, did offer:

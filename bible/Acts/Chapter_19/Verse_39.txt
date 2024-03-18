@@ -1,0 +1,1 @@
+But if ye enquire any thing concerning other matters, it shall be determined in a lawful assembly.

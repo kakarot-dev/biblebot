@@ -1,0 +1,1 @@
+And after the second veil, the tabernacle which is called the Holiest of all;

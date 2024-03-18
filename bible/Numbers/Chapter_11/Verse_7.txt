@@ -1,0 +1,1 @@
+And the manna was as coriander seed, and the colour thereof as the colour of bdellium.

@@ -1,0 +1,1 @@
+Therefore their days did he consume in vanity, and their years in trouble.

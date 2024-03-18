@@ -1,0 +1,1 @@
+Then he is gracious unto him, and saith, Deliver him from going down to the pit: I have found a ransom.

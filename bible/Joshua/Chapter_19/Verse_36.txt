@@ -1,0 +1,1 @@
+And Adamah, and Ramah, and Hazor,

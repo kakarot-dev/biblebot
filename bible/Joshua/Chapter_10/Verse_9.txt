@@ -1,0 +1,1 @@
+Joshua therefore came unto them suddenly, and went up from Gilgal all night.

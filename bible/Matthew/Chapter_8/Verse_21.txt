@@ -1,0 +1,1 @@
+And another of his disciples said unto him, Lord, suffer me first to go and bury my father.

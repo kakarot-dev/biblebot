@@ -1,0 +1,1 @@
+None devoted, which shall be devoted of men, shall be redeemed; but shall surely be put to death.

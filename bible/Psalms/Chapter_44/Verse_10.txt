@@ -1,0 +1,1 @@
+Thou makest us to turn back from the enemy: and they which hate us spoil for themselves.

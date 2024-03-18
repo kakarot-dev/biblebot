@@ -1,0 +1,1 @@
+With whom the Reubenites and the Gadites have received their inheritance, which Moses gave them, beyond Jordan eastward, even as Moses the servant of the LORD gave them;

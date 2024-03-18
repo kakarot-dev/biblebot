@@ -1,0 +1,1 @@
+And I will for this afflict the seed of David, but not for ever.

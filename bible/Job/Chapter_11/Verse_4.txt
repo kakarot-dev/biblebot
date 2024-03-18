@@ -1,0 +1,1 @@
+For thou hast said, My doctrine is pure, and I am clean in thine eyes.

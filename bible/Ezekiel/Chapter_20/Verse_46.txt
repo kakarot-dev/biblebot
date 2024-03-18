@@ -1,0 +1,1 @@
+Son of man, set thy face toward the south, and drop thy word toward the south, and prophesy against the forest of the south field;

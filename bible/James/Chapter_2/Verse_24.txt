@@ -1,0 +1,1 @@
+Ye see then how that by works a man is justified, and not by faith only.

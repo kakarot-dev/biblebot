@@ -1,0 +1,1 @@
+The nobles held their peace, and their tongue cleaved to the roof of their mouth.

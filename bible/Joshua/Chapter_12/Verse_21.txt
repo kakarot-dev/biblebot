@@ -1,0 +1,1 @@
+The king of Taanach, one; the king of Megiddo, one;

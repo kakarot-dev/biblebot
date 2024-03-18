@@ -1,0 +1,1 @@
+And they departed from Moseroth, and pitched in Benejaakan.

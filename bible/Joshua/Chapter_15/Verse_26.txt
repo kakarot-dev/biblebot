@@ -1,0 +1,1 @@
+Amam, and Shema, and Moladah,

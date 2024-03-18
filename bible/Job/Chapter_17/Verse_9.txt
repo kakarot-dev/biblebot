@@ -1,0 +1,1 @@
+The righteous also shall hold on his way, and he that hath clean hands shall be stronger and stronger.

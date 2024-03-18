@@ -1,0 +1,1 @@
+He striketh them as wicked men in the open sight of others;

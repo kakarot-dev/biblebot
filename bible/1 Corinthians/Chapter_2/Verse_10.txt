@@ -1,0 +1,1 @@
+But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God.

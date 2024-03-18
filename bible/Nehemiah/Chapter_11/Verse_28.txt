@@ -1,0 +1,1 @@
+And at Ziklag, and at Mekonah, and in the villages thereof,

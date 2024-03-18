@@ -1,0 +1,1 @@
+Even there shall thy hand lead me, and thy right hand shall hold me.

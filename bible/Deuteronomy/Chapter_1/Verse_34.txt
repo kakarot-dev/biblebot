@@ -1,0 +1,1 @@
+And the LORD heard the voice of your words, and was wroth, and sware, saying,

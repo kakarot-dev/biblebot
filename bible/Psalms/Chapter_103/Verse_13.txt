@@ -1,0 +1,1 @@
+Like as a father pitieth his children, so the LORD pitieth them that fear him.

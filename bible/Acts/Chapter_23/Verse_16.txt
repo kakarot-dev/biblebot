@@ -1,0 +1,1 @@
+And when Paul's sister's son heard of their lying in wait, he went and entered into the castle, and told Paul.

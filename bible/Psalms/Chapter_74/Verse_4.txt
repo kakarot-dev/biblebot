@@ -1,0 +1,1 @@
+Thine enemies roar in the midst of thy congregations; they set up their ensigns for signs.

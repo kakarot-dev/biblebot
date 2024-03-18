@@ -1,0 +1,1 @@
+For thou, LORD, wilt bless the righteous; with favour wilt thou compass him as with a shield.

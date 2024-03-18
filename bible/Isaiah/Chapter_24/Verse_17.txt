@@ -1,0 +1,1 @@
+Fear, and the pit, and the snare, are upon thee, O inhabitant of the earth.

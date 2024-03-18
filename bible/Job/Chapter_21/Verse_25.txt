@@ -1,0 +1,1 @@
+And another dieth in the bitterness of his soul, and never eateth with pleasure.

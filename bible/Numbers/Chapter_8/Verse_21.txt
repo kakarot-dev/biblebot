@@ -1,0 +1,1 @@
+And the Levites were purified, and they washed their clothes; and Aaron offered them as an offering before the LORD; and Aaron made an atonement for them to cleanse them.

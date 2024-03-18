@@ -1,0 +1,1 @@
+The law of his God is in his heart; none of his steps shall slide.

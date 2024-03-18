@@ -1,0 +1,1 @@
+Till another king arose, which knew not Joseph.

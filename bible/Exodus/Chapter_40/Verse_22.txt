@@ -1,0 +1,1 @@
+And he put the table in the tent of the congregation, upon the side of the tabernacle northward, without the vail.

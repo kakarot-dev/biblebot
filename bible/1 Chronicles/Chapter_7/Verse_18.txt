@@ -1,0 +1,1 @@
+And his sister Hammoleketh bare Ishod, and Abiezer, and Mahalah.

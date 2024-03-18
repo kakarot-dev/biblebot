@@ -1,0 +1,1 @@
+Wherefore be ye not unwise, but understanding what the will of the Lord is.

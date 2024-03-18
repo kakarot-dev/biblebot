@@ -1,0 +1,1 @@
+Which thou hast prepared before the face of all people;

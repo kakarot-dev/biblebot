@@ -1,0 +1,1 @@
+And now, I pray you, consider from this day and upward, from before a stone was laid upon a stone in the temple of the LORD:

@@ -1,0 +1,1 @@
+And whosoever was not found written in the book of life was cast into the lake of fire.

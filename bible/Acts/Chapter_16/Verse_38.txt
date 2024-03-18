@@ -1,0 +1,1 @@
+And the serjeants told these words unto the magistrates: and they feared, when they heard that they were Romans.

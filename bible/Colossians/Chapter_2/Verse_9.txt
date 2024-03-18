@@ -1,0 +1,1 @@
+For in him dwelleth all the fulness of the Godhead bodily.

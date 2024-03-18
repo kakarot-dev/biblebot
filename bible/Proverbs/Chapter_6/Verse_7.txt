@@ -1,0 +1,1 @@
+Which having no guide, overseer, or ruler,

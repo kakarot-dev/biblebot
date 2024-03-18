@@ -1,0 +1,1 @@
+Be it known therefore unto you, that the salvation of God is sent unto the Gentiles, and that they will hear it.

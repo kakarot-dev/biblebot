@@ -1,0 +1,1 @@
+That the LORD called Samuel: and he answered, Here am I.

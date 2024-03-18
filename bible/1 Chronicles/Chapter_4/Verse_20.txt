@@ -1,0 +1,1 @@
+And the sons of Shimon were, Amnon, and Rinnah, Benhanan, and Tilon. And the sons of Ishi were, Zoheth, and Benzoheth.

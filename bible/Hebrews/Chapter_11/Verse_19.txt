@@ -1,0 +1,1 @@
+Accounting that God was able to raise him up, even from the dead; from whence also he received him in a figure.

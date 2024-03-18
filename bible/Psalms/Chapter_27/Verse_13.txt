@@ -1,0 +1,1 @@
+I had fainted, unless I had believed to see the goodness of the LORD in the land of the living.

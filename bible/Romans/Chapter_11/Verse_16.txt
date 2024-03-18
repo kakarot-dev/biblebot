@@ -1,0 +1,1 @@
+For if the firstfruit be holy, the lump is also holy: and if the root be holy, so are the branches.

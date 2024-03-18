@@ -1,0 +1,1 @@
+And the king said unto him, Go in peace. So he arose, and went to Hebron.

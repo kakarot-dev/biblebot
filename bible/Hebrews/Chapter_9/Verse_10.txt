@@ -1,0 +1,1 @@
+Which stood only in meats and drinks, and divers washings, and carnal ordinances, imposed on them until the time of reformation.

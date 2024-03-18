@@ -1,0 +1,1 @@
+A seed shall serve him; it shall be accounted to the Lord for a generation.

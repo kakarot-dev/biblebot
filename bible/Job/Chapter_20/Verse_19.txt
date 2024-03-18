@@ -1,0 +1,1 @@
+Because he hath oppressed and hath forsaken the poor; because he hath violently taken away an house which he builded not;

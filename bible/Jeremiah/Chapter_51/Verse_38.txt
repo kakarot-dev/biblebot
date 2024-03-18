@@ -1,0 +1,1 @@
+They shall roar together like lions: they shall yell as lions' whelps.

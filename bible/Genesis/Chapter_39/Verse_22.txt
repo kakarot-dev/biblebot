@@ -1,0 +1,1 @@
+And the keeper of the prison committed to Joseph's hand all the prisoners that were in the prison; and whatsoever they did there, he was the doer of it.

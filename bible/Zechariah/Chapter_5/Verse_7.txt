@@ -1,0 +1,1 @@
+And, behold, there was lifted up a talent of lead: and this is a woman that sitteth in the midst of the ephah.

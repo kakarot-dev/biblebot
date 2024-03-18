@@ -1,0 +1,1 @@
+God shall bless us; and all the ends of the earth shall fear him.

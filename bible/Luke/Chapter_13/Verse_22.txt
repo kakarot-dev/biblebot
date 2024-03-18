@@ -1,0 +1,1 @@
+And he went through the cities and villages, teaching, and journeying toward Jerusalem.

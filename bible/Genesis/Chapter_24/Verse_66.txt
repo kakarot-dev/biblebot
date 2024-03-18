@@ -1,0 +1,1 @@
+And the servant told Isaac all things that he had done.

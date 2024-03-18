@@ -1,0 +1,1 @@
+Turn not to the right hand nor to the left: remove thy foot from evil.

@@ -1,0 +1,1 @@
+They are as stubble before the wind, and as chaff that the storm carrieth away.

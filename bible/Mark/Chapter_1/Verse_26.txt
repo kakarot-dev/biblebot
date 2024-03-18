@@ -1,0 +1,1 @@
+And when the unclean spirit had torn him, and cried with a loud voice, he came out of him.

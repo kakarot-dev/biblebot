@@ -1,0 +1,1 @@
+How long shall I see the standard, and hear the sound of the trumpet?

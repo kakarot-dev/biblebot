@@ -1,0 +1,1 @@
+If this man were not of God, he could do nothing.

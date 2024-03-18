@@ -1,0 +1,1 @@
+And gave them the lands of the heathen: and they inherited the labour of the people;

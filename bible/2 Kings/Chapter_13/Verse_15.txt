@@ -1,0 +1,1 @@
+And Elisha said unto him, Take bow and arrows. And he took unto him bow and arrows.

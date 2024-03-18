@@ -1,0 +1,1 @@
+And they shall not profane the holy things of the children of Israel, which they offer unto the LORD;

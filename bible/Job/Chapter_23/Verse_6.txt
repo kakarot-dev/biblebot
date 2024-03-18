@@ -1,0 +1,1 @@
+Will he plead against me with his great power? No; but he would put strength in me.

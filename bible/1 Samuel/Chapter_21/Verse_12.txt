@@ -1,0 +1,1 @@
+And David laid up these words in his heart, and was sore afraid of Achish the king of Gath.

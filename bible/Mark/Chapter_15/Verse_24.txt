@@ -1,0 +1,1 @@
+And when they had crucified him, they parted his garments, casting lots upon them, what every man should take.

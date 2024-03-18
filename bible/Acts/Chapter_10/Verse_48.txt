@@ -1,0 +1,1 @@
+And he commanded them to be baptized in the name of the Lord. Then prayed they him to tarry certain days.

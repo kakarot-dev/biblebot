@@ -1,0 +1,1 @@
+And they laded their asses with the corn, and departed thence.

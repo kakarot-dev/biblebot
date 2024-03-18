@@ -1,0 +1,1 @@
+And there came out of the smoke locusts upon the earth: and unto them was given power, as the scorpions of the earth have power.

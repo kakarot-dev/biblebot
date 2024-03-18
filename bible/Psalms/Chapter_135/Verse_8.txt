@@ -1,0 +1,1 @@
+Who smote the firstborn of Egypt, both of man and beast.

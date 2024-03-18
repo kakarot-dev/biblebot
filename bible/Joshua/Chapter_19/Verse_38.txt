@@ -1,0 +1,1 @@
+And Iron, and Migdalel, Horem, and Bethanath, and Bethshemesh; nineteen cities with their villages.

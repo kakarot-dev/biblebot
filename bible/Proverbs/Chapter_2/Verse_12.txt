@@ -1,0 +1,1 @@
+To deliver thee from the way of the evil man, from the man that speaketh froward things;

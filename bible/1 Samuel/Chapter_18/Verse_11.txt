@@ -1,0 +1,1 @@
+And Saul cast the javelin; for he said, I will smite David even to the wall with it. And David avoided out of his presence twice.

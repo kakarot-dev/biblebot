@@ -1,0 +1,1 @@
+And ye know that with all my power I have served your father.

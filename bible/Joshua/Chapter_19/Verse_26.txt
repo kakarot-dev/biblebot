@@ -1,0 +1,1 @@
+And Alammelech, and Amad, and Misheal; and reacheth to Carmel westward, and to Shihorlibnath;

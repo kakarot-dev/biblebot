@@ -1,0 +1,1 @@
+Until I make thy foes thy footstool.

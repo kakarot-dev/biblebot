@@ -1,0 +1,1 @@
+It may be that the LORD will look on mine affliction, and that the LORD will requite me good for his cursing this day.

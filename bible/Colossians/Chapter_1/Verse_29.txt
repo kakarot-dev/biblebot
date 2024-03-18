@@ -1,0 +1,1 @@
+Whereunto I also labour, striving according to his working, which worketh in me mightily.

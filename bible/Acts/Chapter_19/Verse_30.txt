@@ -1,0 +1,1 @@
+And when Paul would have entered in unto the people, the disciples suffered him not.

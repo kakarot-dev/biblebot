@@ -1,0 +1,1 @@
+Kings of the earth, and all people; princes, and all judges of the earth:

@@ -1,0 +1,1 @@
+Because there is wrath, beware lest he take thee away with his stroke: then a great ransom cannot deliver thee.

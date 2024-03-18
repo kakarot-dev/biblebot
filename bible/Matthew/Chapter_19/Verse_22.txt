@@ -1,0 +1,1 @@
+But when the young man heard that saying, he went away sorrowful: for he had great possessions.

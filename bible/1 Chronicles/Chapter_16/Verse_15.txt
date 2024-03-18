@@ -1,0 +1,1 @@
+Be ye mindful always of his covenant; the word which he commanded to a thousand generations;

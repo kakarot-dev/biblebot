@@ -1,0 +1,1 @@
+I will take the cup of salvation, and call upon the name of the LORD.

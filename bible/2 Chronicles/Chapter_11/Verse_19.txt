@@ -1,0 +1,1 @@
+Which bare him children; Jeush, and Shamariah, and Zaham.

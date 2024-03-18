@@ -1,0 +1,1 @@
+The righteous shall inherit the land, and dwell therein for ever.

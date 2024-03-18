@@ -1,0 +1,1 @@
+Will the unicorn be willing to serve thee, or abide by thy crib?

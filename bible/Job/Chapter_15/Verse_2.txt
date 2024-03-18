@@ -1,0 +1,1 @@
+Should a wise man utter vain knowledge, and fill his belly with the east wind?

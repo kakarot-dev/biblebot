@@ -1,0 +1,1 @@
+But they hearkened not, nor inclined their ear to turn from their wickedness, to burn no incense unto other gods.

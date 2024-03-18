@@ -1,0 +1,1 @@
+Lest he tear my soul like a lion, rending it in pieces, while there is none to deliver.

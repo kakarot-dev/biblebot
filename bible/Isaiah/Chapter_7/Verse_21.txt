@@ -1,0 +1,1 @@
+And it shall come to pass in that day, that a man shall nourish a young cow, and two sheep;

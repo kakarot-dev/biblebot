@@ -1,0 +1,1 @@
+And they arrived at the country of the Gadarenes, which is over against Galilee.

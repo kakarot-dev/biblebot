@@ -1,0 +1,1 @@
+And as soon as he was come, he goeth straightway to him, and saith, Master, master; and kissed him.

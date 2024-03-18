@@ -1,0 +1,1 @@
+Yet hear the word of the LORD, O Zedekiah king of Judah; Thus saith the LORD of thee, Thou shalt not die by the sword:

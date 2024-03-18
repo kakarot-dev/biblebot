@@ -1,0 +1,1 @@
+And they brought forth the images out of the house of Baal, and burned them.

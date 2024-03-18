@@ -1,0 +1,1 @@
+As is the earthy, such are they also that are earthy: and as is the heavenly, such are they also that are heavenly.

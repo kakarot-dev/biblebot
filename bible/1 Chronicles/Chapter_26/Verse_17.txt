@@ -1,0 +1,1 @@
+Eastward were six Levites, northward four a day, southward four a day, and toward Asuppim two and two.

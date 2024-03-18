@@ -1,0 +1,1 @@
+Destruction and death say, We have heard the fame thereof with our ears.

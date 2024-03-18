@@ -1,0 +1,1 @@
+The things that my soul refused to touch are as my sorrowful meat.

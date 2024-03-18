@@ -1,0 +1,1 @@
+They break in pieces thy people, O LORD, and afflict thine heritage.

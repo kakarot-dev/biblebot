@@ -1,0 +1,1 @@
+Speak unto the children of Israel, and say unto them, When ye be come over Jordan into the land of Canaan;

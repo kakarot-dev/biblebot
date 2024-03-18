@@ -1,0 +1,1 @@
+And all the army of the Chaldees, that were with the captain of the guard, brake down the walls of Jerusalem round about.

@@ -1,0 +1,1 @@
+They are wet with the showers of the mountains, and embrace the rock for want of a shelter.

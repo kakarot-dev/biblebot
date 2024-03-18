@@ -1,0 +1,1 @@
+And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers;

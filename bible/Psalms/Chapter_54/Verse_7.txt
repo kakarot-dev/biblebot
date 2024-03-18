@@ -1,0 +1,1 @@
+For he hath delivered me out of all trouble: and mine eye hath seen his desire upon mine enemies.

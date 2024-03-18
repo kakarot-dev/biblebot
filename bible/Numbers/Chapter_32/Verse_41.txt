@@ -1,0 +1,1 @@
+And Jair the son of Manasseh went and took the small towns thereof, and called them Havothjair.

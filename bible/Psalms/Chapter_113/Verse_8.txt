@@ -1,0 +1,1 @@
+That he may set him with princes, even with the princes of his people.

@@ -1,0 +1,1 @@
+Then will I also confess unto thee that thine own right hand can save thee.

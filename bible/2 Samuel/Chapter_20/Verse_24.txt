@@ -1,0 +1,1 @@
+And Adoram was over the tribute: and Jehoshaphat the son of Ahilud was recorder:

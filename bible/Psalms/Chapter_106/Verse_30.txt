@@ -1,0 +1,1 @@
+Then stood up Phinehas, and executed judgment: and so the plague was stayed.

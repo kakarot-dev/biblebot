@@ -1,0 +1,1 @@
+Now I say that Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises made unto the fathers:

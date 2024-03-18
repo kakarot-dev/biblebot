@@ -1,0 +1,1 @@
+Thus saith the LORD of hosts; Consider your ways.

@@ -1,0 +1,1 @@
+And God met Balaam: and he said unto him, I have prepared seven altars, and I have offered upon every altar a bullock and a ram.

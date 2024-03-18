@@ -1,0 +1,1 @@
+Moab is destroyed; her little ones have caused a cry to be heard.

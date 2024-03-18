@@ -1,0 +1,1 @@
+And Moses went up into the mount, and a cloud covered the mount.

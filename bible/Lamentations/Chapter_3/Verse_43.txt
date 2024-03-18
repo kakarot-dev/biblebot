@@ -1,0 +1,1 @@
+Thou hast covered with anger, and persecuted us: thou hast slain, thou hast not pitied.

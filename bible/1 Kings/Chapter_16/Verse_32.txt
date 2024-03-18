@@ -1,0 +1,1 @@
+And he reared up an altar for Baal in the house of Baal, which he had built in Samaria.

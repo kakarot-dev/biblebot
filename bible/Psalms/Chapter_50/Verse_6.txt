@@ -1,0 +1,1 @@
+And the heavens shall declare his righteousness: for God is judge himself. Selah.

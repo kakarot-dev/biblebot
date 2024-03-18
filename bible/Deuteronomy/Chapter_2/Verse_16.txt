@@ -1,0 +1,1 @@
+So it came to pass, when all the men of war were consumed and dead from among the people,

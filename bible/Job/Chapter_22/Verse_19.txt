@@ -1,0 +1,1 @@
+The righteous see it, and are glad: and the innocent laugh them to scorn.

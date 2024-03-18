@@ -1,0 +1,1 @@
+And devout men carried Stephen to his burial, and made great lamentation over him.

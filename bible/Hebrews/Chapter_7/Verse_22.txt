@@ -1,0 +1,1 @@
+By so much was Jesus made a surety of a better testament.

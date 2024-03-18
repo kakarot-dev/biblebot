@@ -1,0 +1,1 @@
+He shall receive the blessing from the LORD, and righteousness from the God of his salvation.

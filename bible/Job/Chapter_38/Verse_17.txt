@@ -1,0 +1,1 @@
+Have the gates of death been opened unto thee? or hast thou seen the doors of the shadow of death?

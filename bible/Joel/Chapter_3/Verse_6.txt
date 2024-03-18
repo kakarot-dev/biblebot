@@ -1,0 +1,1 @@
+The children also of Judah and the children of Jerusalem have ye sold unto the Grecians, that ye might remove them far from their border.

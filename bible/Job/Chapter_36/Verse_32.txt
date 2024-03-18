@@ -1,0 +1,1 @@
+With clouds he covereth the light; and commandeth it not to shine by the cloud that cometh betwixt.

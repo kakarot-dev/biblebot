@@ -1,0 +1,1 @@
+And no marvel; for Satan himself is transformed into an angel of light.

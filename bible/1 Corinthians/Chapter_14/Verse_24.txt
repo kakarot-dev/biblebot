@@ -1,0 +1,1 @@
+But if all prophesy, and there come in one that believeth not, or one unlearned, he is convinced of all, he is judged of all:

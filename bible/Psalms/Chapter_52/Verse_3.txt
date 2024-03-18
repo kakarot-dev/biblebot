@@ -1,0 +1,1 @@
+Thou lovest evil more than good; and lying rather than to speak righteousness. Selah.

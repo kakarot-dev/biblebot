@@ -1,0 +1,1 @@
+And they passed thence unto mount Ephraim, and came unto the house of Micah.

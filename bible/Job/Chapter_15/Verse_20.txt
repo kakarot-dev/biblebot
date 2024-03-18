@@ -1,0 +1,1 @@
+The wicked man travaileth with pain all his days, and the number of years is hidden to the oppressor.

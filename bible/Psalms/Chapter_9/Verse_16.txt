@@ -1,0 +1,1 @@
+The LORD is known by the judgment which he executeth: the wicked is snared in the work of his own hands. Higgaion. Selah.

@@ -1,0 +1,1 @@
+That no man should be moved by these afflictions: for yourselves know that we are appointed thereunto.

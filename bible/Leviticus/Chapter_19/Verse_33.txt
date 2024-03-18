@@ -1,0 +1,1 @@
+And if a stranger sojourn with thee in your land, ye shall not vex him.

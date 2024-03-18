@@ -1,0 +1,1 @@
+So Saul died, and his three sons, and his armourbearer, and all his men, that same day together.

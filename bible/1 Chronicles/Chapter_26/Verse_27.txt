@@ -1,0 +1,1 @@
+Out of the spoils won in battles did they dedicate to maintain the house of the LORD.

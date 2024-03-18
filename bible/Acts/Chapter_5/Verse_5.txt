@@ -1,0 +1,1 @@
+And Ananias hearing these words fell down, and gave up the ghost: and great fear came on all them that heard these things.

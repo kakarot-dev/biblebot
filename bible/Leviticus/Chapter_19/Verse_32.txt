@@ -1,0 +1,1 @@
+Thou shalt rise up before the hoary head, and honour the face of the old man, and fear thy God: I am the LORD.

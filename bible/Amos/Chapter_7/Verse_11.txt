@@ -1,0 +1,1 @@
+For thus Amos saith, Jeroboam shall die by the sword, and Israel shall surely be led away captive out of their own land.

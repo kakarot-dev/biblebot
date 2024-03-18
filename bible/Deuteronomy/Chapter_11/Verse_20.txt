@@ -1,0 +1,1 @@
+And thou shalt write them upon the door posts of thine house, and upon thy gates:

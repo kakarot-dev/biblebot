@@ -1,0 +1,1 @@
+He beholdeth all high things: he is a king over all the children of pride.

@@ -1,0 +1,1 @@
+For every house is builded by some man; but he that built all things is God.

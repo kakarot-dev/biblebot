@@ -1,0 +1,1 @@
+To know wisdom and instruction; to perceive the words of understanding;

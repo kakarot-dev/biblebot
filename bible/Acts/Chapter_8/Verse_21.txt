@@ -1,0 +1,1 @@
+Thou hast neither part nor lot in this matter: for thy heart is not right in the sight of God.

@@ -1,0 +1,1 @@
+The trespass money and sin money was not brought into the house of the LORD: it was the priests'.

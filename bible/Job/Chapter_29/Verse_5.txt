@@ -1,0 +1,1 @@
+When the Almighty was yet with me, when my children were about me;

@@ -1,0 +1,1 @@
+O house of Aaron, trust in the LORD: he is their help and their shield.

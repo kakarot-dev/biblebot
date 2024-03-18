@@ -1,0 +1,1 @@
+Six years thou shalt sow thy field, and six years thou shalt prune thy vineyard, and gather in the fruit thereof;

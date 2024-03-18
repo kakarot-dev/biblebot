@@ -1,0 +1,1 @@
+And they were astonished at his doctrine: for his word was with power.

@@ -1,0 +1,1 @@
+Who also declared unto us your love in the Spirit.

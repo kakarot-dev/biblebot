@@ -1,0 +1,1 @@
+And Moses cried unto the LORD, saying, Heal her now, O God, I beseech thee.

@@ -1,0 +1,1 @@
+Ye shall buy meat of them for money, that ye may eat; and ye shall also buy water of them for money, that ye may drink.

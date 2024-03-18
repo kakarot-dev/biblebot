@@ -1,0 +1,1 @@
+And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,

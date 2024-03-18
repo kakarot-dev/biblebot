@@ -1,0 +1,1 @@
+And they set them up Micah's graven image, which he made, all the time that the house of God was in Shiloh.

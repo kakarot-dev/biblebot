@@ -1,0 +1,1 @@
+And others had trial of cruel mockings and scourgings, yea, moreover of bonds and imprisonment:

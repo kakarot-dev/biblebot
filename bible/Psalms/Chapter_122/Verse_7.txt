@@ -1,0 +1,1 @@
+Peace be within thy walls, and prosperity within thy palaces.

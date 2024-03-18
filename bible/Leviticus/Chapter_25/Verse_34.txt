@@ -1,0 +1,1 @@
+But the field of the suburbs of their cities may not be sold; for it is their perpetual possession.

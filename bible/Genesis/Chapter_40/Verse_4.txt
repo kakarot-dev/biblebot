@@ -1,0 +1,1 @@
+And the captain of the guard charged Joseph with them, and he served them: and they continued a season in ward.

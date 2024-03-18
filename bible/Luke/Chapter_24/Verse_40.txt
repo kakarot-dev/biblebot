@@ -1,0 +1,1 @@
+And when he had thus spoken, he shewed them his hands and his feet.

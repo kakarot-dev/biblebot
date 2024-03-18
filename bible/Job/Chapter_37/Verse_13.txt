@@ -1,0 +1,1 @@
+He causeth it to come, whether for correction, or for his land, or for mercy.

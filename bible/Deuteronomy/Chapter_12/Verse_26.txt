@@ -1,0 +1,1 @@
+Only thy holy things which thou hast, and thy vows, thou shalt take, and go unto the place which the LORD shall choose:

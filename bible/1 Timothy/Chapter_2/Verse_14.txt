@@ -1,0 +1,1 @@
+And Adam was not deceived, but the woman being deceived was in the transgression.

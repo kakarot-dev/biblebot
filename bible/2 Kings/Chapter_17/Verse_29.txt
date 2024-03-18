@@ -1,0 +1,1 @@
+Howbeit every nation made gods of their own, and put them in the houses of the high places which the Samaritans had made, every nation in their cities wherein they dwelt.

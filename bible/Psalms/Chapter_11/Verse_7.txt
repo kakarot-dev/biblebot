@@ -1,0 +1,1 @@
+For the righteous LORD loveth righteousness; his countenance doth behold the upright.

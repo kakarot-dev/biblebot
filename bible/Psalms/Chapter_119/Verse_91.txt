@@ -1,0 +1,1 @@
+They continue this day according to thine ordinances: for all are thy servants.

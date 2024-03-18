@@ -1,0 +1,1 @@
+Rejoicing in hope; patient in tribulation; continuing instant in prayer;

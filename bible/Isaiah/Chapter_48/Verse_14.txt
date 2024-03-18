@@ -1,0 +1,1 @@
+All ye, assemble yourselves, and hear; which among them hath declared these things? The LORD hath loved him: he will do his pleasure on Babylon, and his arm shall be on the Chaldeans.

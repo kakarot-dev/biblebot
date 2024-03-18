@@ -1,0 +1,1 @@
+This is a faithful saying and worthy of all acceptation.

@@ -1,0 +1,1 @@
+That every one of you should know how to possess his vessel in sanctification and honour;

@@ -1,0 +1,1 @@
+And the elders of the congregation shall lay their hands upon the head of the bullock before the LORD: and the bullock shall be killed before the LORD.

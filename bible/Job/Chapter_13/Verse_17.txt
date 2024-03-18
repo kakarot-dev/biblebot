@@ -1,0 +1,1 @@
+Hear diligently my speech, and my declaration with your ears.

@@ -1,0 +1,1 @@
+They that did feed delicately are desolate in the streets: they that were brought up in scarlet embrace dunghills.

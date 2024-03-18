@@ -1,0 +1,1 @@
+The LORD repented for this: It shall not be, saith the LORD.

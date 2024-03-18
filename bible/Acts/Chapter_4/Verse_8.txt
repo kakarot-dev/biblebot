@@ -1,0 +1,1 @@
+Then Peter, filled with the Holy Ghost, said unto them, Ye rulers of the people, and elders of Israel,

@@ -1,0 +1,1 @@
+But the high places were not removed: nevertheless Asa's heart was perfect with the LORD all his days.

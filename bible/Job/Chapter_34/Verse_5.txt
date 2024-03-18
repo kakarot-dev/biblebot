@@ -1,0 +1,1 @@
+For Job hath said, I am righteous: and God hath taken away my judgment.

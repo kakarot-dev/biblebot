@@ -1,0 +1,1 @@
+And every man went unto his own house.

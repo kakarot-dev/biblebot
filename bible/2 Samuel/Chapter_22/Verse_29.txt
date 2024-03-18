@@ -1,0 +1,1 @@
+For thou art my lamp, O LORD: and the LORD will lighten my darkness.

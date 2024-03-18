@@ -1,0 +1,1 @@
+Your lamb shall be without blemish, a male of the first year: ye shall take it out from the sheep, or from the goats:

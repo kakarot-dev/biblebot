@@ -1,0 +1,1 @@
+So shall the king greatly desire thy beauty: for he is thy Lord; and worship thou him.

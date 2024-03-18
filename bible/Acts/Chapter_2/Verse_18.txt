@@ -1,0 +1,1 @@
+And on my servants and on my handmaidens I will pour out in those days of my Spirit; and they shall prophesy:

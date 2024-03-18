@@ -1,0 +1,1 @@
+In the year that king Ahaz died was this burden.

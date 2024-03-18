@@ -1,0 +1,1 @@
+Then shall the dust return to the earth as it was: and the spirit shall return unto God who gave it.

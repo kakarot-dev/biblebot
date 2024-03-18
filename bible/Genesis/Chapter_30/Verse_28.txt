@@ -1,0 +1,1 @@
+And he said, Appoint me thy wages, and I will give it.

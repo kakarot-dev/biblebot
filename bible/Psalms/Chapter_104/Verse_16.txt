@@ -1,0 +1,1 @@
+The trees of the LORD are full of sap; the cedars of Lebanon, which he hath planted;

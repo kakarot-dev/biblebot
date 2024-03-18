@@ -1,0 +1,1 @@
+He was with David at Pasdammim, and there the Philistines were gathered together to battle, where was a parcel of ground full of barley; and the people fled from before the Philistines.

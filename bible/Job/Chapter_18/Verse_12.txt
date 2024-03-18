@@ -1,0 +1,1 @@
+His strength shall be hungerbitten, and destruction shall be ready at his side.

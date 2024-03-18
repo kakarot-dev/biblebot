@@ -1,0 +1,1 @@
+Thou sellest thy people for nought, and dost not increase thy wealth by their price.

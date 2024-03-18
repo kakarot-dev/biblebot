@@ -1,0 +1,1 @@
+Ye shall not do so unto the LORD your God.

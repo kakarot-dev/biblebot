@@ -1,0 +1,1 @@
+But all Israel and Judah loved David, because he went out and came in before them.

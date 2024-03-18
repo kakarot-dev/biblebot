@@ -1,0 +1,1 @@
+And commanded Judah to seek the LORD God of their fathers, and to do the law and the commandment.

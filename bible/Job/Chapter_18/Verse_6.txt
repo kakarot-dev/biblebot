@@ -1,0 +1,1 @@
+The light shall be dark in his tabernacle, and his candle shall be put out with him.

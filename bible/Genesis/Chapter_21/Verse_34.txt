@@ -1,0 +1,1 @@
+And Abraham sojourned in the Philistines' land many days.

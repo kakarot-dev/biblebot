@@ -1,0 +1,1 @@
+And they that know thy name will put their trust in thee: for thou, LORD, hast not forsaken them that seek thee.

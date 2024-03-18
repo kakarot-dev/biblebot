@@ -1,0 +1,1 @@
+Israel also came into Egypt; and Jacob sojourned in the land of Ham.

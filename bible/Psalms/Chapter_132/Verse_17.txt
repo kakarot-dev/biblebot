@@ -1,0 +1,1 @@
+There will I make the horn of David to bud: I have ordained a lamp for mine anointed.

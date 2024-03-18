@@ -1,0 +1,1 @@
+When they heard these things, they held their peace, and glorified God, saying, Then hath God also to the Gentiles granted repentance unto life.

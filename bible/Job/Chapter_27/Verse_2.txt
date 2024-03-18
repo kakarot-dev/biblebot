@@ -1,0 +1,1 @@
+As God liveth, who hath taken away my judgment; and the Almighty, who hath vexed my soul;

@@ -1,0 +1,1 @@
+To bind his princes at his pleasure; and teach his senators wisdom.

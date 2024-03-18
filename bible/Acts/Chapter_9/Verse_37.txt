@@ -1,0 +1,1 @@
+And it came to pass in those days, that she was sick, and died: whom when they had washed, they laid her in an upper chamber.

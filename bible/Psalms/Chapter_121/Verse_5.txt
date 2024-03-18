@@ -1,0 +1,1 @@
+The LORD is thy keeper: the LORD is thy shade upon thy right hand.

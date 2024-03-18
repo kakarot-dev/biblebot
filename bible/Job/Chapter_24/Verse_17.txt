@@ -1,0 +1,1 @@
+For the morning is to them even as the shadow of death: if one know them, they are in the terrors of the shadow of death.

@@ -1,0 +1,1 @@
+Husbands, love your wives, and be not bitter against them.

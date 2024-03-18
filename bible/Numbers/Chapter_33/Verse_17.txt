@@ -1,0 +1,1 @@
+And they departed from Kibrothhattaavah, and encamped at Hazeroth.

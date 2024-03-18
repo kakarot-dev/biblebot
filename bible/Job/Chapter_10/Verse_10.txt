@@ -1,0 +1,1 @@
+Hast thou not poured me out as milk, and curdled me like cheese?

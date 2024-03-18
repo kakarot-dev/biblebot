@@ -1,0 +1,1 @@
+And he said, What then is to be done for her? And Gehazi answered, Verily she hath no child, and her husband is old.

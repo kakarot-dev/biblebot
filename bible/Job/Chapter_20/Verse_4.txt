@@ -1,0 +1,1 @@
+Knowest thou not this of old, since man was placed upon earth,

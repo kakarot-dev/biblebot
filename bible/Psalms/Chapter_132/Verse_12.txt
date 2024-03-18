@@ -1,0 +1,1 @@
+If thy children will keep my covenant and my testimony that I shall teach them, their children shall also sit upon thy throne for evermore.

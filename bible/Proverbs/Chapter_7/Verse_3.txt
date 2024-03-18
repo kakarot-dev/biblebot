@@ -1,0 +1,1 @@
+Bind them upon thy fingers, write them upon the table of thine heart.

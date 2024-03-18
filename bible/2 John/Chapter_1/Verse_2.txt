@@ -1,0 +1,1 @@
+For the truth's sake, which dwelleth in us, and shall be with us for ever.

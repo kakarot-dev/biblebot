@@ -1,0 +1,1 @@
+Can the rush grow up without mire? can the flag grow without water?

@@ -1,0 +1,1 @@
+Yet they were not afraid, nor rent their garments, neither the king, nor any of his servants that heard all these words.

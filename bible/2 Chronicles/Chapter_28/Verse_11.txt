@@ -1,0 +1,1 @@
+Now hear me therefore, and deliver the captives again, which ye have taken captive of your brethren: for the fierce wrath of the LORD is upon you.

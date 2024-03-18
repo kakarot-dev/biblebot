@@ -1,0 +1,1 @@
+And also Solomon sitteth on the throne of the kingdom.

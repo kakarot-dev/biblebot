@@ -1,0 +1,1 @@
+But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.

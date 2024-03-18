@@ -1,0 +1,1 @@
+Then one of the priests whom they had carried away from Samaria came and dwelt in Bethel, and taught them how they should fear the LORD.

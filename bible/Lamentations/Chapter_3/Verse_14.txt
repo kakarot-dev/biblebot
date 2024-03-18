@@ -1,0 +1,1 @@
+I was a derision to all my people; and their song all the day.

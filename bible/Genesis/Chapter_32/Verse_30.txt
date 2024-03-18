@@ -1,0 +1,1 @@
+And Jacob called the name of the place Peniel: for I have seen God face to face, and my life is preserved.

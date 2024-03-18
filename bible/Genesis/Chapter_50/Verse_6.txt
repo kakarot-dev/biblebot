@@ -1,0 +1,1 @@
+And Pharaoh said, Go up, and bury thy father, according as he made thee swear.

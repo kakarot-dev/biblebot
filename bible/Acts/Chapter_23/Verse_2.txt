@@ -1,0 +1,1 @@
+And the high priest Ananias commanded them that stood by him to smite him on the mouth.

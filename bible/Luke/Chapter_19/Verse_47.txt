@@ -1,0 +1,1 @@
+And he taught daily in the temple. But the chief priests and the scribes and the chief of the people sought to destroy him,

@@ -1,0 +1,1 @@
+He hath destroyed me on every side, and I am gone: and mine hope hath he removed like a tree.

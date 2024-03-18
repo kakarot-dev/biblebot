@@ -1,0 +1,1 @@
+Neither shalt thou bear false witness against thy neighbour.

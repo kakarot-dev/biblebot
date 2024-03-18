@@ -1,0 +1,1 @@
+The LORD judge between me and thee, and the LORD avenge me of thee: but mine hand shall not be upon thee.

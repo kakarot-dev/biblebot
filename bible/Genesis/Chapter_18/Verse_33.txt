@@ -1,0 +1,1 @@
+And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.

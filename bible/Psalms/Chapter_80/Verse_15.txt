@@ -1,0 +1,1 @@
+And the vineyard which thy right hand hath planted, and the branch that thou madest strong for thyself.

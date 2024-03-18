@@ -1,0 +1,1 @@
+Eleazar begat Phinehas, Phinehas begat Abishua,

@@ -1,0 +1,1 @@
+Who, when they were come down, prayed for them, that they might receive the Holy Ghost:

@@ -1,0 +1,1 @@
+And that day was the preparation, and the sabbath drew on.

@@ -1,0 +1,1 @@
+Passing through the street near her corner; and he went the way to her house,

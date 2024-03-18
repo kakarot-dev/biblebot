@@ -1,0 +1,1 @@
+Thou shalt therefore keep this ordinance in his season from year to year.

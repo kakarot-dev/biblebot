@@ -1,0 +1,1 @@
+Then thou shalt say unto them, I presented my supplication before the king, that he would not cause me to return to Jonathan's house, to die there.

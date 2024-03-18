@@ -1,0 +1,1 @@
+And being found in fashion as a man, he humbled himself, and became obedient unto death, even the death of the cross.

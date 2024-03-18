@@ -1,0 +1,1 @@
+But to them that rebuke him shall be delight, and a good blessing shall come upon them.

@@ -1,0 +1,1 @@
+Save thy people, and bless thine inheritance: feed them also, and lift them up for ever.

@@ -1,0 +1,1 @@
+He setteth an end to darkness, and searcheth out all perfection: the stones of darkness, and the shadow of death.

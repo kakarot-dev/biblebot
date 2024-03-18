@@ -1,0 +1,1 @@
+When he established the clouds above: when he strengthened the fountains of the deep:

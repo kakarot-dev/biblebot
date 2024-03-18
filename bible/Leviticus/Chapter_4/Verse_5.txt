@@ -1,0 +1,1 @@
+And the priest that is anointed shall take of the bullock's blood, and bring it to the tabernacle of the congregation:

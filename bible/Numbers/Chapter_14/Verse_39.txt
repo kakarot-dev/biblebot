@@ -1,0 +1,1 @@
+And Moses told these sayings unto all the children of Israel: and the people mourned greatly.

@@ -1,0 +1,1 @@
+But thou, O man of God, flee these things; and follow after righteousness, godliness, faith, love, patience, meekness.

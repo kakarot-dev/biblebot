@@ -1,0 +1,1 @@
+And the altar shall be twelve cubits long, twelve broad, square in the four squares thereof.

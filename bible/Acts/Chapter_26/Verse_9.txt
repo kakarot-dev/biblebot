@@ -1,0 +1,1 @@
+I verily thought with myself, that I ought to do many things contrary to the name of Jesus of Nazareth.

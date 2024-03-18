@@ -1,0 +1,1 @@
+Now the rest of the acts of Jehoshaphat, and his might that he shewed, and how he warred, are they not written in the book of the chronicles of the kings of Judah?

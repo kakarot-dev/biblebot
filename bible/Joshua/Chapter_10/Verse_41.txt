@@ -1,0 +1,1 @@
+And Joshua smote them from Kadeshbarnea even unto Gaza, and all the country of Goshen, even unto Gibeon.

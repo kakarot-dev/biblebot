@@ -1,0 +1,1 @@
+And not only so, but we glory in tribulations also: knowing that tribulation worketh patience;

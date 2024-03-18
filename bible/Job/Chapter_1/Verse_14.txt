@@ -1,0 +1,1 @@
+And there came a messenger unto Job, and said, The oxen were plowing, and the asses feeding beside them:

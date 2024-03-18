@@ -1,0 +1,1 @@
+And thirty and two thousand persons in all, of women that had not known man by lying with him.

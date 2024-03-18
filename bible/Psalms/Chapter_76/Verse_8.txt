@@ -1,0 +1,1 @@
+Thou didst cause judgment to be heard from heaven; the earth feared, and was still,

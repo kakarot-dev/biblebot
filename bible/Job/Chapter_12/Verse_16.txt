@@ -1,0 +1,1 @@
+With him is strength and wisdom: the deceived and the deceiver are his.

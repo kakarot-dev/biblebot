@@ -1,0 +1,1 @@
+And king Solomon made two hundred targets of beaten gold: six hundred shekels of gold went to one target.

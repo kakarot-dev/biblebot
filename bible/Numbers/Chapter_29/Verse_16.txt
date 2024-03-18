@@ -1,0 +1,1 @@
+And one kid of the goats for a sin offering; beside the continual burnt offering, his meat offering, and his drink offering.

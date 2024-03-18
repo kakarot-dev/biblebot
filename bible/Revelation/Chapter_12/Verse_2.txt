@@ -1,0 +1,1 @@
+And she being with child cried, travailing in birth, and pained to be delivered.

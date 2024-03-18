@@ -1,0 +1,1 @@
+To be discreet, chaste, keepers at home, good, obedient to their own husbands, that the word of God be not blasphemed.

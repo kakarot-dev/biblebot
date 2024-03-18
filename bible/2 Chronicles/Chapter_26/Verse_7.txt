@@ -1,0 +1,1 @@
+And God helped him against the Philistines, and against the Arabians that dwelt in Gurbaal, and the Mehunims.

@@ -1,0 +1,1 @@
+For the LORD will plead their cause, and spoil the soul of those that spoiled them.

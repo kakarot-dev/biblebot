@@ -1,0 +1,1 @@
+Thou art near, O LORD; and all thy commandments are truth.

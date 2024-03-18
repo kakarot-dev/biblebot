@@ -1,0 +1,1 @@
+And he brought them to the border of his sanctuary, even to this mountain, which his right hand had purchased.

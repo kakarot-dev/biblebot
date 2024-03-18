@@ -1,0 +1,1 @@
+So Moses went down unto the people, and spake unto them.

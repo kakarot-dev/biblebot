@@ -1,0 +1,1 @@
+Riches and honour are with me; yea, durable riches and righteousness.

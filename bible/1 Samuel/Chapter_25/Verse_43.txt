@@ -1,0 +1,1 @@
+David also took Ahinoam of Jezreel; and they were also both of them his wives.

@@ -1,0 +1,1 @@
+Who laid the foundations of the earth, that it should not be removed for ever.

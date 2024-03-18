@@ -1,0 +1,1 @@
+Behold, thou hast heard what the kings of Assyria have done to all lands by destroying them utterly; and shalt thou be delivered?

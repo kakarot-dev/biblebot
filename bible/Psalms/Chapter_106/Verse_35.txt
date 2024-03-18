@@ -1,0 +1,1 @@
+But were mingled among the heathen, and learned their works.

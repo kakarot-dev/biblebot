@@ -1,0 +1,1 @@
+My sons, be not now negligent: for the LORD hath chosen you to stand before him, to serve him, and that ye should minister unto him, and burn incense.

@@ -1,0 +1,1 @@
+And for the sides of the tabernacle westward thou shalt make six boards.

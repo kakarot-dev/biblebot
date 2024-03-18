@@ -1,0 +1,1 @@
+Hear attentively the noise of his voice, and the sound that goeth out of his mouth.

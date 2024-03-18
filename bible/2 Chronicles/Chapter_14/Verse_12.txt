@@ -1,0 +1,1 @@
+So the LORD smote the Ethiopians before Asa, and before Judah; and the Ethiopians fled.

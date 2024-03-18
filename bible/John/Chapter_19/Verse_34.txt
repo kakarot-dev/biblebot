@@ -1,0 +1,1 @@
+But one of the soldiers with a spear pierced his side, and forthwith came there out blood and water.

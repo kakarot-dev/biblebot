@@ -1,0 +1,1 @@
+The east wind carrieth him away, and he departeth: and as a storm hurleth him out of his place.

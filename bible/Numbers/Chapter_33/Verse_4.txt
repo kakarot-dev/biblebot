@@ -1,0 +1,1 @@
+For the Egyptians buried all their firstborn, which the LORD had smitten among them: upon their gods also the LORD executed judgments.

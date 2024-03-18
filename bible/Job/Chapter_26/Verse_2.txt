@@ -1,0 +1,1 @@
+How hast thou helped him that is without power? how savest thou the arm that hath no strength?

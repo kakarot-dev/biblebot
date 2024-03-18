@@ -1,0 +1,1 @@
+They were a wall unto us both by night and day, all the while we were with them keeping the sheep.

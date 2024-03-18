@@ -1,0 +1,1 @@
+And Tilgathpilneser king of Assyria came unto him, and distressed him, but strengthened him not.

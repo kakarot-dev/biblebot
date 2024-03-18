@@ -1,0 +1,1 @@
+For then shalt thou lift up thy face without spot; yea, thou shalt be stedfast, and shalt not fear:

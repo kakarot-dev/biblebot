@@ -1,0 +1,1 @@
+They gather themselves together against the soul of the righteous, and condemn the innocent blood.

@@ -1,0 +1,1 @@
+Whoso sheddeth man's blood, by man shall his blood be shed: for in the image of God made he man.

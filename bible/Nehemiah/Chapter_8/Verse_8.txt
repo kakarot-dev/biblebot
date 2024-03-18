@@ -1,0 +1,1 @@
+So they read in the book in the law of God distinctly, and gave the sense, and caused them to understand the reading.

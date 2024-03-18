@@ -1,0 +1,1 @@
+And the time that Jehu reigned over Israel in Samaria was twenty and eight years.

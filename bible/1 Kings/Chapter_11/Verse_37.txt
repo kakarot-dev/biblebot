@@ -1,0 +1,1 @@
+And I will take thee, and thou shalt reign according to all that thy soul desireth, and shalt be king over Israel.

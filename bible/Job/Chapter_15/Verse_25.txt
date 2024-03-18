@@ -1,0 +1,1 @@
+For he stretcheth out his hand against God, and strengtheneth himself against the Almighty.

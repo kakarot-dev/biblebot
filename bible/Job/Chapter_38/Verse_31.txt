@@ -1,0 +1,1 @@
+Canst thou bind the sweet influences of Pleiades, or loose the bands of Orion?

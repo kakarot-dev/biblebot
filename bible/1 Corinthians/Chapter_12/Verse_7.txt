@@ -1,0 +1,1 @@
+But the manifestation of the Spirit is given to every man to profit withal.

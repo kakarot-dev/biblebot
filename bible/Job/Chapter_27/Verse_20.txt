@@ -1,0 +1,1 @@
+Terrors take hold on him as waters, a tempest stealeth him away in the night.

@@ -1,0 +1,1 @@
+For they heard them speak with tongues, and magnify God. Then answered Peter,

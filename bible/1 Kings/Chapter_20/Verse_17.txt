@@ -1,0 +1,1 @@
+And the young men of the princes of the provinces went out first; and Benhadad sent out, and they told him, saying, There are men come out of Samaria.

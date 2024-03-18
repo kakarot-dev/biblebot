@@ -1,0 +1,1 @@
+And his servants arose, and made a conspiracy, and slew Joash in the house of Millo, which goeth down to Silla.

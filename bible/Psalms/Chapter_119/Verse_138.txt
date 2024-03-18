@@ -1,0 +1,1 @@
+Thy testimonies that thou hast commanded are righteous and very faithful.

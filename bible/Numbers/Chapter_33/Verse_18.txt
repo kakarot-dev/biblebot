@@ -1,0 +1,1 @@
+And they departed from Hazeroth, and pitched in Rithmah.

@@ -1,0 +1,1 @@
+Of a truth, LORD, the kings of Assyria have destroyed the nations and their lands,

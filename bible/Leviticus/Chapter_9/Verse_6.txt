@@ -1,0 +1,1 @@
+And Moses said, This is the thing which the LORD commanded that ye should do: and the glory of the LORD shall appear unto you.

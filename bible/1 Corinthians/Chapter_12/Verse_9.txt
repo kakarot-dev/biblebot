@@ -1,0 +1,1 @@
+To another faith by the same Spirit; to another the gifts of healing by the same Spirit;

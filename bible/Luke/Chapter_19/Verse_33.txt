@@ -1,0 +1,1 @@
+And as they were loosing the colt, the owners thereof said unto them, Why loose ye the colt?

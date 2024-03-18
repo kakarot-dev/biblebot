@@ -1,0 +1,1 @@
+When they saw the star, they rejoiced with exceeding great joy.

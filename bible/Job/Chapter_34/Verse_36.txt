@@ -1,0 +1,1 @@
+My desire is that Job may be tried unto the end because of his answers for wicked men.

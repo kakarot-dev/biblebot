@@ -1,0 +1,1 @@
+And the LORD rejected all the seed of Israel, and afflicted them, and delivered them into the hand of spoilers, until he had cast them out of his sight.

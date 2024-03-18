@@ -1,0 +1,1 @@
+And as I began to speak, the Holy Ghost fell on them, as on us at the beginning.

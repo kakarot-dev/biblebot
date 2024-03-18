@@ -1,0 +1,1 @@
+I was eyes to the blind, and feet was I to the lame.

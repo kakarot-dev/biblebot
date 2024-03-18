@@ -1,0 +1,1 @@
+And the elders of Gilead said unto Jephthah, The LORD be witness between us, if we do not so according to thy words.

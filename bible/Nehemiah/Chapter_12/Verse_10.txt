@@ -1,0 +1,1 @@
+And Jeshua begat Joiakim, Joiakim also begat Eliashib, and Eliashib begat Joiada,

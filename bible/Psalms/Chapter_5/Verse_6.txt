@@ -1,0 +1,1 @@
+Thou shalt destroy them that speak leasing: the LORD will abhor the bloody and deceitful man.

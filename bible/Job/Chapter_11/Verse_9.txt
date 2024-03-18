@@ -1,0 +1,1 @@
+The measure thereof is longer than the earth, and broader than the sea.

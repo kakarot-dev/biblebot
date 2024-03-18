@@ -1,0 +1,1 @@
+And thou shalt make staves of shittim wood, and overlay them with gold.

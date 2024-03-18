@@ -1,0 +1,1 @@
+Thus saith the LORD, which maketh a way in the sea, and a path in the mighty waters;

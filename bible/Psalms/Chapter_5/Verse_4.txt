@@ -1,0 +1,1 @@
+For thou art not a God that hath pleasure in wickedness: neither shall evil dwell with thee.

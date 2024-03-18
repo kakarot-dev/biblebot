@@ -1,0 +1,1 @@
+And when I would have known the cause wherefore they accused him, I brought him forth into their council:

@@ -1,0 +1,1 @@
+Out of the mouth of the most High proceedeth not evil and good?

@@ -1,0 +1,1 @@
+And they conspired against him, and stoned him with stones at the commandment of the king in the court of the house of the LORD.

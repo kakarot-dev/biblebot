@@ -1,0 +1,1 @@
+How long wilt thou go about, O thou backsliding daughter? for the LORD hath created a new thing in the earth, A woman shall compass a man.

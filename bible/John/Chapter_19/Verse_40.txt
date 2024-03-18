@@ -1,0 +1,1 @@
+Then took they the body of Jesus, and wound it in linen clothes with the spices, as the manner of the Jews is to bury.

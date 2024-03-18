@@ -1,0 +1,1 @@
+Then the king and all the people offered sacrifices before the LORD.

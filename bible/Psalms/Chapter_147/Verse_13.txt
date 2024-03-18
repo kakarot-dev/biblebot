@@ -1,0 +1,1 @@
+For he hath strengthened the bars of thy gates; he hath blessed thy children within thee.

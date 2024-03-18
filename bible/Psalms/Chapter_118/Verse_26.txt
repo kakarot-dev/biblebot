@@ -1,0 +1,1 @@
+Blessed be he that cometh in the name of the LORD: we have blessed you out of the house of the LORD.

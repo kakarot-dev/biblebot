@@ -1,0 +1,1 @@
+I know that the LORD will maintain the cause of the afflicted, and the right of the poor.

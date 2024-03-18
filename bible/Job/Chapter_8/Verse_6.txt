@@ -1,0 +1,1 @@
+If thou wert pure and upright; surely now he would awake for thee, and make the habitation of thy righteousness prosperous.

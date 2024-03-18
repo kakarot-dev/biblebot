@@ -1,0 +1,1 @@
+And Adonijah feared because of Solomon, and arose, and went, and caught hold on the horns of the altar.

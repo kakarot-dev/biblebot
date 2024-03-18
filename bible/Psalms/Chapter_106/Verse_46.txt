@@ -1,0 +1,1 @@
+He made them also to be pitied of all those that carried them captives.

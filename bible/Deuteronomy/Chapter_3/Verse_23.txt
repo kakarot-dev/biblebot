@@ -1,0 +1,1 @@
+And I besought the LORD at that time, saying,

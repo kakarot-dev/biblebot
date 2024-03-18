@@ -1,0 +1,1 @@
+If thou return to the Almighty, thou shalt be built up, thou shalt put away iniquity far from thy tabernacles.

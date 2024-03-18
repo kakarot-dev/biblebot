@@ -1,0 +1,1 @@
+Providing for honest things, not only in the sight of the Lord, but also in the sight of men.

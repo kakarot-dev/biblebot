@@ -1,0 +1,1 @@
+Thou art snared with the words of thy mouth, thou art taken with the words of thy mouth.

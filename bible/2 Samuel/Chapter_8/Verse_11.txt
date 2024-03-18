@@ -1,0 +1,1 @@
+Which also king David did dedicate unto the LORD, with the silver and gold that he had dedicated of all nations which he subdued;

@@ -1,0 +1,1 @@
+And there will I nourish thee; for yet there are five years of famine; lest thou, and thy household, and all that thou hast, come to poverty.

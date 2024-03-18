@@ -1,0 +1,1 @@
+His disciples said unto him, Lo, now speakest thou plainly, and speakest no proverb.

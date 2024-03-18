@@ -1,0 +1,1 @@
+And am I now come up without the LORD against this land to destroy it? the LORD said unto me, Go up against this land, and destroy it.

@@ -1,0 +1,1 @@
+They are of the world: therefore speak they of the world, and the world heareth them.

@@ -1,0 +1,1 @@
+And the west border was to the great sea, and the coast thereof. This is the coast of the children of Judah round about according to their families.

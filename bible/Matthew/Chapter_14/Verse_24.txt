@@ -1,0 +1,1 @@
+But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.

@@ -1,0 +1,1 @@
+By the blast of God they perish, and by the breath of his nostrils are they consumed.

@@ -1,0 +1,1 @@
+For who can eat, or who else can hasten hereunto, more than I?

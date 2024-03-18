@@ -1,0 +1,1 @@
+But this man, because he continueth ever, hath an unchangeable priesthood.

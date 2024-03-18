@@ -1,0 +1,1 @@
+And when Shaul was dead, Baalhanan the son of Achbor reigned in his stead.

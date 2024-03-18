@@ -1,0 +1,1 @@
+Some indeed preach Christ even of envy and strife; and some also of good will:

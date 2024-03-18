@@ -1,0 +1,1 @@
+The LORD is good to all: and his tender mercies are over all his works.

@@ -1,0 +1,1 @@
+This is that Benaiah, who was mighty among the thirty, and above the thirty: and in his course was Ammizabad his son.

@@ -1,0 +1,1 @@
+And Aaron shall offer his bullock of the sin offering, which is for himself, and make an atonement for himself, and for his house.

@@ -1,0 +1,1 @@
+Blessed be the LORD for evermore. Amen, and Amen.

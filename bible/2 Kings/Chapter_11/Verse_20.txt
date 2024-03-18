@@ -1,0 +1,1 @@
+And all the people of the land rejoiced, and the city was in quiet: and they slew Athaliah with the sword beside the king's house.

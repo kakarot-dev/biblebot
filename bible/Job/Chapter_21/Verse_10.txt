@@ -1,0 +1,1 @@
+Their bull gendereth, and faileth not; their cow calveth, and casteth not her calf.

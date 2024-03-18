@@ -1,0 +1,1 @@
+Have all the gifts of healing? do all speak with tongues? do all interpret?

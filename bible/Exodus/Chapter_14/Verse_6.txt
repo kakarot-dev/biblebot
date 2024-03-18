@@ -1,0 +1,1 @@
+And he made ready his chariot, and took his people with him:

@@ -1,0 +1,1 @@
+For his eyes are upon the ways of man, and he seeth all his goings.

@@ -1,0 +1,1 @@
+And I am sure that, when I come unto you, I shall come in the fulness of the blessing of the gospel of Christ.

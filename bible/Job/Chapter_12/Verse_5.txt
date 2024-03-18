@@ -1,0 +1,1 @@
+He that is ready to slip with his feet is as a lamp despised in the thought of him that is at ease.

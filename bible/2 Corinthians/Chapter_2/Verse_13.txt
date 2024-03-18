@@ -1,0 +1,1 @@
+I had no rest in my spirit, because I found not Titus my brother: but taking my leave of them, I went from thence into Macedonia.

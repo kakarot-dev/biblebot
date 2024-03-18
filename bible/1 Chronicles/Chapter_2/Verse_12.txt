@@ -1,0 +1,1 @@
+And Boaz begat Obed, and Obed begat Jesse,

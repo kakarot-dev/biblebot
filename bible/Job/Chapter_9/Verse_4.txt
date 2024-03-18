@@ -1,0 +1,1 @@
+He is wise in heart, and mighty in strength: who hath hardened himself against him, and hath prospered?

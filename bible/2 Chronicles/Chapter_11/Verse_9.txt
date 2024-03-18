@@ -1,0 +1,1 @@
+And Adoraim, and Lachish, and Azekah,

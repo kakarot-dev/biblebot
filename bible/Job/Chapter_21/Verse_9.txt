@@ -1,0 +1,1 @@
+Their houses are safe from fear, neither is the rod of God upon them.

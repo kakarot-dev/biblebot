@@ -1,0 +1,1 @@
+Surely I would speak to the Almighty, and I desire to reason with God.

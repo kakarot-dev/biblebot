@@ -1,0 +1,1 @@
+And art confident that thou thyself art a guide of the blind, a light of them which are in darkness,

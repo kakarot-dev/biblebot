@@ -1,0 +1,1 @@
+For thy servant David's sake turn not away the face of thine anointed.

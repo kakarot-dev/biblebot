@@ -1,0 +1,1 @@
+And all went to be taxed, every one into his own city.

@@ -1,0 +1,1 @@
+And they said unto them, We cannot do this thing, to give our sister to one that is uncircumcised; for that were a reproach unto us:

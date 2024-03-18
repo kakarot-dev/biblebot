@@ -1,0 +1,1 @@
+And those which pitch by him shall be the tribe of Simeon: and the captain of the children of Simeon shall be Shelumiel the son of Zurishaddai.

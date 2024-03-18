@@ -1,0 +1,1 @@
+So they and their children had the oversight of the gates of the house of the LORD, namely, the house of the tabernacle, by wards.

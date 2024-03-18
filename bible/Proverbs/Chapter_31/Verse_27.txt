@@ -1,0 +1,1 @@
+She looketh well to the ways of her household, and eateth not the bread of idleness.

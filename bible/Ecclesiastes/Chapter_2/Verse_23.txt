@@ -1,0 +1,1 @@
+For all his days are sorrows, and his travail grief; yea, his heart taketh not rest in the night. This is also vanity.

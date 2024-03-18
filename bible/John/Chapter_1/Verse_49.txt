@@ -1,0 +1,1 @@
+Nathanael answered and saith unto him, Rabbi, thou art the Son of God; thou art the King of Israel.

@@ -1,0 +1,1 @@
+So Ahab sent unto all the children of Israel, and gathered the prophets together unto mount Carmel.

@@ -1,0 +1,1 @@
+Verily thou art a God that hidest thyself, O God of Israel, the Saviour.

@@ -1,0 +1,1 @@
+But now being made free from sin, and become servants to God, ye have your fruit unto holiness, and the end everlasting life.

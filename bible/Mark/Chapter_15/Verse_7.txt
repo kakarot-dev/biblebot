@@ -1,0 +1,1 @@
+And there was one named Barabbas, which lay bound with them that had made insurrection with him, who had committed murder in the insurrection.

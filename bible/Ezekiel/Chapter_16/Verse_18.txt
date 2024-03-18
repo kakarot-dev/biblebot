@@ -1,0 +1,1 @@
+And tookest thy broidered garments, and coveredst them: and thou hast set mine oil and mine incense before them.

@@ -1,0 +1,1 @@
+For Aaron and his sons shall wash their hands and their feet thereat:

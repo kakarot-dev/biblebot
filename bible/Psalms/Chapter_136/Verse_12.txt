@@ -1,0 +1,1 @@
+With a strong hand, and with a stretched out arm: for his mercy endureth for ever.

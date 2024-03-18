@@ -1,0 +1,1 @@
+The sons of Hashem the Gizonite, Jonathan the son of Shage the Hararite,

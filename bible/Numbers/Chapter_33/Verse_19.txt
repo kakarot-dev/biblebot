@@ -1,0 +1,1 @@
+And they departed from Rithmah, and pitched at Rimmonparez.

@@ -1,0 +1,1 @@
+Thou shalt make thy prayer unto him, and he shall hear thee, and thou shalt pay thy vows.

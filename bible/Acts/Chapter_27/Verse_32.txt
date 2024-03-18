@@ -1,0 +1,1 @@
+Then the soldiers cut off the ropes of the boat, and let her fall off.

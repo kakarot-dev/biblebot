@@ -1,0 +1,1 @@
+So mightily grew the word of God and prevailed.

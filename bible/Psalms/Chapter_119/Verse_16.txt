@@ -1,0 +1,1 @@
+I will delight myself in thy statutes: I will not forget thy word.

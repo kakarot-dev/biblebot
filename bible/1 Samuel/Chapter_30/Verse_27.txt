@@ -1,0 +1,1 @@
+To them which were in Bethel, and to them which were in south Ramoth, and to them which were in Jattir,

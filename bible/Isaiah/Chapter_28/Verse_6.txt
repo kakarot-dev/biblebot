@@ -1,0 +1,1 @@
+And for a spirit of judgment to him that sitteth in judgment, and for strength to them that turn the battle to the gate.

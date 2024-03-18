@@ -1,0 +1,1 @@
+Their enemies also oppressed them, and they were brought into subjection under their hand.

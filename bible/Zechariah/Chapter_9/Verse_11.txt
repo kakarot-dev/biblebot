@@ -1,0 +1,1 @@
+As for thee also, by the blood of thy covenant I have sent forth thy prisoners out of the pit wherein is no water.

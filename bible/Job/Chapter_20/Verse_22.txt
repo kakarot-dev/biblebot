@@ -1,0 +1,1 @@
+In the fulness of his sufficiency he shall be in straits: every hand of the wicked shall come upon him.

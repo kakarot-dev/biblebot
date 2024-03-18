@@ -1,0 +1,1 @@
+Yea, thou castest off fear, and restrainest prayer before God.

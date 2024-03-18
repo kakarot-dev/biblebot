@@ -1,0 +1,1 @@
+Folly is set in great dignity, and the rich sit in low place.

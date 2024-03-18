@@ -1,0 +1,1 @@
+Let all your things be done with charity.

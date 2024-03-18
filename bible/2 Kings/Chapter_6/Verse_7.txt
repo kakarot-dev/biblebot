@@ -1,0 +1,1 @@
+Therefore said he, Take it up to thee. And he put out his hand, and took it.

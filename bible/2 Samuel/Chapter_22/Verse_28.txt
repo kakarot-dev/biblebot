@@ -1,0 +1,1 @@
+And the afflicted people thou wilt save: but thine eyes are upon the haughty, that thou mayest bring them down.

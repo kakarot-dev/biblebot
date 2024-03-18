@@ -1,0 +1,1 @@
+And for the leprosy of a garment, and of a house,

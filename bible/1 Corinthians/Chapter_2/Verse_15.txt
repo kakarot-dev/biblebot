@@ -1,0 +1,1 @@
+But he that is spiritual judgeth all things, yet he himself is judged of no man.

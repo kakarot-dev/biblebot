@@ -1,0 +1,1 @@
+Prepare against her the nations with the kings of the Medes, the captains thereof, and all the rulers thereof, and all the land of his dominion.

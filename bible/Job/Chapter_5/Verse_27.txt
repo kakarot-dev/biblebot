@@ -1,0 +1,1 @@
+Lo this, we have searched it, so it is; hear it, and know thou it for thy good.

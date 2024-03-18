@@ -1,0 +1,1 @@
+And the multitude rose up together against them: and the magistrates rent off their clothes, and commanded to beat them.

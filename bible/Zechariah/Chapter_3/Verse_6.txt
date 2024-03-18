@@ -1,0 +1,1 @@
+And the angel of the LORD protested unto Joshua, saying,

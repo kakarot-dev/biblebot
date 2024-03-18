@@ -1,0 +1,1 @@
+And finding a ship sailing over unto Phenicia, we went aboard, and set forth.

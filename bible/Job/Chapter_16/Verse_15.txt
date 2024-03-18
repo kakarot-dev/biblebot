@@ -1,0 +1,1 @@
+I have sewed sackcloth upon my skin, and defiled my horn in the dust.

@@ -1,0 +1,1 @@
+And as they went about to kill him, tidings came unto the chief captain of the band, that all Jerusalem was in an uproar.

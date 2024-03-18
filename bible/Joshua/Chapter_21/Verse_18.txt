@@ -1,0 +1,1 @@
+Anathoth with her suburbs, and Almon with her suburbs; four cities.

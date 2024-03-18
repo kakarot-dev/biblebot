@@ -1,0 +1,1 @@
+And not for that nation only, but that also he should gather together in one the children of God that were scattered abroad.

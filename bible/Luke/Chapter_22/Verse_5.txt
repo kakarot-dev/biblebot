@@ -1,0 +1,1 @@
+And they were glad, and covenanted to give him money.

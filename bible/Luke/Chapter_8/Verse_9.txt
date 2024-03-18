@@ -1,0 +1,1 @@
+And his disciples asked him, saying, What might this parable be?

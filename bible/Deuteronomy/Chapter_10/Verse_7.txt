@@ -1,0 +1,1 @@
+From thence they journeyed unto Gudgodah; and from Gudgodah to Jotbath, a land of rivers of waters.

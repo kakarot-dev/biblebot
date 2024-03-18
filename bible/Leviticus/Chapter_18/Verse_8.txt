@@ -1,0 +1,1 @@
+The nakedness of thy father's wife shalt thou not uncover: it is thy father's nakedness.

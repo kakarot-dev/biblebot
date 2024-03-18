@@ -1,0 +1,1 @@
+Vex the Midianites, and smite them:

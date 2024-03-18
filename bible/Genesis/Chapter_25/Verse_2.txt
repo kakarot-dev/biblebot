@@ -1,0 +1,1 @@
+And she bare him Zimran, and Jokshan, and Medan, and Midian, and Ishbak, and Shuah.

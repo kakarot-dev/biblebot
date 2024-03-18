@@ -1,0 +1,1 @@
+For they also built them high places, and images, and groves, on every high hill, and under every green tree.

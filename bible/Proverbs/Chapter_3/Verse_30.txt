@@ -1,0 +1,1 @@
+Strive not with a man without cause, if he have done thee no harm.

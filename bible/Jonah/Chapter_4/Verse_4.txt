@@ -1,0 +1,1 @@
+Then said the LORD, Doest thou well to be angry?

@@ -1,0 +1,1 @@
+And next him was Amasiah the son of Zichri, who willingly offered himself unto the LORD; and with him two hundred thousand mighty men of valour.

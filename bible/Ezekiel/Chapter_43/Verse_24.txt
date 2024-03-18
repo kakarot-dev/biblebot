@@ -1,0 +1,1 @@
+And thou shalt offer them before the LORD, and the priests shall cast salt upon them, and they shall offer them up for a burnt offering unto the LORD.

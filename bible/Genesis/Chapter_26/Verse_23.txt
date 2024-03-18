@@ -1,0 +1,1 @@
+And he went up from thence to Beersheba.

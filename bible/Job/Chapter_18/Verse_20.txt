@@ -1,0 +1,1 @@
+They that come after him shall be astonied at his day, as they that went before were affrighted.

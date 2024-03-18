@@ -1,0 +1,1 @@
+For as yet they knew not the scripture, that he must rise again from the dead.

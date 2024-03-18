@@ -1,0 +1,1 @@
+The foot shall tread it down, even the feet of the poor, and the steps of the needy.

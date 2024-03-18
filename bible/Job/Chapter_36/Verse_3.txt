@@ -1,0 +1,1 @@
+I will fetch my knowledge from afar, and will ascribe righteousness to my Maker.

@@ -1,0 +1,1 @@
+Of clean beasts, and of beasts that are not clean, and of fowls, and of every thing that creepeth upon the earth,

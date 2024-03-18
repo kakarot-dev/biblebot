@@ -1,0 +1,1 @@
+The small and great are there; and the servant is free from his master.

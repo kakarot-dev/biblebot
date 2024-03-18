@@ -1,0 +1,1 @@
+Can a man take fire in his bosom, and his clothes not be burned?

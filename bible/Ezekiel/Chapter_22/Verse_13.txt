@@ -1,0 +1,1 @@
+Behold, therefore I have smitten mine hand at thy dishonest gain which thou hast made, and at thy blood which hath been in the midst of thee.

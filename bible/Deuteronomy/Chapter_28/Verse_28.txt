@@ -1,0 +1,1 @@
+The LORD shall smite thee with madness, and blindness, and astonishment of heart:

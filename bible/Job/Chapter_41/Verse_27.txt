@@ -1,0 +1,1 @@
+He esteemeth iron as straw, and brass as rotten wood.

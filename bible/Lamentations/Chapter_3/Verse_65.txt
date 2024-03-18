@@ -1,0 +1,1 @@
+Give them sorrow of heart, thy curse unto them.

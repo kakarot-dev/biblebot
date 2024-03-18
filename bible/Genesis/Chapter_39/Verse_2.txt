@@ -1,0 +1,1 @@
+And the LORD was with Joseph, and he was a prosperous man; and he was in the house of his master the Egyptian.

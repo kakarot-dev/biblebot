@@ -1,0 +1,1 @@
+So then they which be of faith are blessed with faithful Abraham.

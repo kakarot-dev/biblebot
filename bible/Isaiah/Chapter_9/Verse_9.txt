@@ -1,0 +1,1 @@
+And all the people shall know, even Ephraim and the inhabitant of Samaria, that say in the pride and stoutness of heart,

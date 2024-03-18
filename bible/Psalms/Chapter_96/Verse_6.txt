@@ -1,0 +1,1 @@
+Honour and majesty are before him: strength and beauty are in his sanctuary.

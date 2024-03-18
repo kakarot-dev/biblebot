@@ -1,0 +1,1 @@
+Servants, be subject to your masters with all fear; not only to the good and gentle, but also to the froward.

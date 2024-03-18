@@ -1,0 +1,1 @@
+And they did eat of the old corn of the land on the morrow after the passover, unleavened cakes, and parched corn in the selfsame day.

@@ -1,0 +1,1 @@
+Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart;

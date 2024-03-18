@@ -1,0 +1,1 @@
+If I have seen any perish for want of clothing, or any poor without covering;

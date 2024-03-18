@@ -1,0 +1,1 @@
+Let not the foot of pride come against me, and let not the hand of the wicked remove me.

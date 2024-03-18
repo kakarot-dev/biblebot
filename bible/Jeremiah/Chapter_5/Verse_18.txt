@@ -1,0 +1,1 @@
+Nevertheless in those days, saith the LORD, I will not make a full end with you.

@@ -1,0 +1,1 @@
+Said with a loud voice, Stand upright on thy feet. And he leaped and walked.

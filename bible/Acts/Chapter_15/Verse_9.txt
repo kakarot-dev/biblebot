@@ -1,0 +1,1 @@
+And put no difference between us and them, purifying their hearts by faith.

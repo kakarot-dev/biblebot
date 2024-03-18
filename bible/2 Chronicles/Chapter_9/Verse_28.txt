@@ -1,0 +1,1 @@
+And they brought unto Solomon horses out of Egypt, and out of all lands.

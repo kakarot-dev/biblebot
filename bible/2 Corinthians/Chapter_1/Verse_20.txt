@@ -1,0 +1,1 @@
+For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.

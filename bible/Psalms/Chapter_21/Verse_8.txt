@@ -1,0 +1,1 @@
+Thine hand shall find out all thine enemies: thy right hand shall find out those that hate thee.

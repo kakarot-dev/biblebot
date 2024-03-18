@@ -1,0 +1,1 @@
+But take heed lest by any means this liberty of yours become a stumblingblock to them that are weak.

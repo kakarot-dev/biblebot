@@ -1,0 +1,1 @@
+Ye have shamed the counsel of the poor, because the LORD is his refuge.

@@ -1,0 +1,1 @@
+And thou shalt make two cherubims of gold, of beaten work shalt thou make them, in the two ends of the mercy seat.

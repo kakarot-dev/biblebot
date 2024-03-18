@@ -1,0 +1,1 @@
+For God is the King of all the earth: sing ye praises with understanding.

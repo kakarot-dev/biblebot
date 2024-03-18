@@ -1,0 +1,1 @@
+He shall neither have son nor nephew among his people, nor any remaining in his dwellings.

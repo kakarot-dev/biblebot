@@ -1,0 +1,1 @@
+Wherefore, brethren, covet to prophesy, and forbid not to speak with tongues.

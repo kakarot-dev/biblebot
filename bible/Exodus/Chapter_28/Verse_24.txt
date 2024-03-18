@@ -1,0 +1,1 @@
+And thou shalt put the two wreathen chains of gold in the two rings which are on the ends of the breastplate.

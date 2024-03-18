@@ -1,0 +1,1 @@
+And I will camp against thee round about, and will lay siege against thee with a mount, and I will raise forts against thee.

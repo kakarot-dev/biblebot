@@ -1,0 +1,1 @@
+So when this was done, others also, which had diseases in the island, came, and were healed:

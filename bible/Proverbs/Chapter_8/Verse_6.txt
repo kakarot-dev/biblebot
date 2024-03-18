@@ -1,0 +1,1 @@
+Hear; for I will speak of excellent things; and the opening of my lips shall be right things.

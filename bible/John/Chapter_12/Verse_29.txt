@@ -1,0 +1,1 @@
+The people therefore, that stood by, and heard it, said that it thundered: others said, An angel spake to him.

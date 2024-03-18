@@ -1,0 +1,1 @@
+So Israel rebelled against the house of David unto this day.

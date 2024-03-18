@@ -1,0 +1,1 @@
+Then Joab sent and told David all the things concerning the war;

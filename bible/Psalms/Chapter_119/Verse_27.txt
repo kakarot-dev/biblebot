@@ -1,0 +1,1 @@
+Make me to understand the way of thy precepts: so shall I talk of thy wondrous works.

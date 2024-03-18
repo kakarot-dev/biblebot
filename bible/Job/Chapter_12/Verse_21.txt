@@ -1,0 +1,1 @@
+He poureth contempt upon princes, and weakeneth the strength of the mighty.

@@ -1,0 +1,1 @@
+As a fountain casteth out her waters, so she casteth out her wickedness: violence and spoil is heard in her; before me continually is grief and wounds.

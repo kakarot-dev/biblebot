@@ -1,0 +1,1 @@
+And they brought him on horses: and he was buried at Jerusalem with his fathers in the city of David.

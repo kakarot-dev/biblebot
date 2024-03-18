@@ -1,0 +1,1 @@
+And straightway the fountain of her blood was dried up; and she felt in her body that she was healed of that plague.

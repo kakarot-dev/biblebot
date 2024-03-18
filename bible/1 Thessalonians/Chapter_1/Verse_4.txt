@@ -1,0 +1,1 @@
+Knowing, brethren beloved, your election of God.

@@ -1,0 +1,1 @@
+(For from my youth he was brought up with me, as with a father, and I have guided her from my mother's womb;)

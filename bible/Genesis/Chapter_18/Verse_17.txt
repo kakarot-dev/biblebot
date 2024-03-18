@@ -1,0 +1,1 @@
+And the LORD said, Shall I hide from Abraham that thing which I do;

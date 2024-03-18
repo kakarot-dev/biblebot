@@ -1,0 +1,1 @@
+And he increased his people greatly; and made them stronger than their enemies.

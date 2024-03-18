@@ -1,0 +1,1 @@
+And he set the one in Bethel, and the other put he in Dan.

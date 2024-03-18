@@ -1,0 +1,1 @@
+And now abideth faith, hope, charity, these three; but the greatest of these is charity.

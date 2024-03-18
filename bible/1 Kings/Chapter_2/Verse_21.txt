@@ -1,0 +1,1 @@
+And she said, Let Abishag the Shunammite be given to Adonijah thy brother to wife.

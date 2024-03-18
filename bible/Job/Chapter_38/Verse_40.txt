@@ -1,0 +1,1 @@
+When they couch in their dens, and abide in the covert to lie in wait?

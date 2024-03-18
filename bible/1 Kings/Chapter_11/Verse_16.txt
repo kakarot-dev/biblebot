@@ -1,0 +1,1 @@
+(For six months did Joab remain there with all Israel, until he had cut off every male in Edom:)

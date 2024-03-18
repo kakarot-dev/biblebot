@@ -1,0 +1,1 @@
+But the word of God grew and multiplied.

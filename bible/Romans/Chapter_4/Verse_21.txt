@@ -1,0 +1,1 @@
+And being fully persuaded that, what he had promised, he was able also to perform.

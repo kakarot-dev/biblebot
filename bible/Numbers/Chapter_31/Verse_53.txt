@@ -1,0 +1,1 @@
+(For the men of war had taken spoil, every man for himself.)

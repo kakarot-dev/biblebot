@@ -1,0 +1,1 @@
+And Laban gave unto his daughter Leah Zilpah his maid for an handmaid.

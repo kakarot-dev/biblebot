@@ -1,0 +1,1 @@
+Salute Asyncritus, Phlegon, Hermas, Patrobas, Hermes, and the brethren which are with them.

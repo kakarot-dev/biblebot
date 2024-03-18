@@ -1,0 +1,1 @@
+I will offer to thee the sacrifice of thanksgiving, and will call upon the name of the LORD.

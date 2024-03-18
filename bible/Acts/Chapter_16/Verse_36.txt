@@ -1,0 +1,1 @@
+And the keeper of the prison told this saying to Paul, The magistrates have sent to let you go: now therefore depart, and go in peace.

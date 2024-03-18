@@ -1,0 +1,1 @@
+And the soldiers also mocked him, coming to him, and offering him vinegar,

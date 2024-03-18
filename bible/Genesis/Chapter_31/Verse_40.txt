@@ -1,0 +1,1 @@
+Thus I was; in the day the drought consumed me, and the frost by night; and my sleep departed from mine eyes.

@@ -1,0 +1,1 @@
+And Benhadad sent unto him, and said, The gods do so unto me, and more also, if the dust of Samaria shall suffice for handfuls for all the people that follow me.

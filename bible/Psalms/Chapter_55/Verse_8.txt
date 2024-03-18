@@ -1,0 +1,1 @@
+I would hasten my escape from the windy storm and tempest.

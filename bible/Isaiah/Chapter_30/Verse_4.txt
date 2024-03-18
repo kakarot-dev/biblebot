@@ -1,0 +1,1 @@
+For his princes were at Zoan, and his ambassadors came to Hanes.

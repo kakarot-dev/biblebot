@@ -1,0 +1,1 @@
+And they spake unto all the company of the children of Israel, saying, The land, which we passed through to search it, is an exceeding good land.

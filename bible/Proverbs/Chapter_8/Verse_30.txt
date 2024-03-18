@@ -1,0 +1,1 @@
+Then I was by him, as one brought up with him: and I was daily his delight, rejoicing always before him;

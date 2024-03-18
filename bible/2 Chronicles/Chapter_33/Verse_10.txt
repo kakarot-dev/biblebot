@@ -1,0 +1,1 @@
+And the LORD spake to Manasseh, and to his people: but they would not hearken.

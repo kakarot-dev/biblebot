@@ -1,0 +1,1 @@
+He rebuked the Red sea also, and it was dried up: so he led them through the depths, as through the wilderness.

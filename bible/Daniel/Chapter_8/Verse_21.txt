@@ -1,0 +1,1 @@
+And the rough goat is the king of Grecia: and the great horn that is between his eyes is the first king.

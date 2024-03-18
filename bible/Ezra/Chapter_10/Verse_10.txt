@@ -1,0 +1,1 @@
+And Ezra the priest stood up, and said unto them, Ye have transgressed, and have taken strange wives, to increase the trespass of Israel.

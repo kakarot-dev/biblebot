@@ -1,0 +1,1 @@
+And the land shall tremble and sorrow: for every purpose of the LORD shall be performed against Babylon, to make the land of Babylon a desolation without an inhabitant.

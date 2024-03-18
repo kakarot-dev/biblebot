@@ -1,0 +1,1 @@
+And out of the tribe of Asher, Mishal with her suburbs, Abdon with her suburbs,

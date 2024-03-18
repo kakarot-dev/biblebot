@@ -1,0 +1,1 @@
+If a brother or sister be naked, and destitute of daily food,

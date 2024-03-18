@@ -1,0 +1,1 @@
+With the pure thou wilt shew thyself pure; and with the froward thou wilt shew thyself unsavoury.

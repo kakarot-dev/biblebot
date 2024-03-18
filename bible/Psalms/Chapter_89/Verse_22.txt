@@ -1,0 +1,1 @@
+The enemy shall not exact upon him; nor the son of wickedness afflict him.

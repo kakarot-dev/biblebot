@@ -1,0 +1,1 @@
+The kings of Tarshish and of the isles shall bring presents: the kings of Sheba and Seba shall offer gifts.

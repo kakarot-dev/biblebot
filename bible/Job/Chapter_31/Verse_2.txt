@@ -1,0 +1,1 @@
+For what portion of God is there from above? and what inheritance of the Almighty from on high?

@@ -1,0 +1,1 @@
+If thou buy an Hebrew servant, six years he shall serve: and in the seventh he shall go out free for nothing.

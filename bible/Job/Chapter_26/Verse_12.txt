@@ -1,0 +1,1 @@
+He divideth the sea with his power, and by his understanding he smiteth through the proud.

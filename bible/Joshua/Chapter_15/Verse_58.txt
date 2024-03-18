@@ -1,0 +1,1 @@
+Halhul, Bethzur, and Gedor,

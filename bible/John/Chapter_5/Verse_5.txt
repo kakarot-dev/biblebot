@@ -1,0 +1,1 @@
+And a certain man was there, which had an infirmity thirty and eight years.

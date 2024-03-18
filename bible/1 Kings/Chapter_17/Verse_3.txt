@@ -1,0 +1,1 @@
+Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that is before Jordan.

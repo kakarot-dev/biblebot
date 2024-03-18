@@ -1,0 +1,1 @@
+He that loveth his brother abideth in the light, and there is none occasion of stumbling in him.

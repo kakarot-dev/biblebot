@@ -1,0 +1,1 @@
+Thou shalt therefore obey the voice of the LORD thy God, and do his commandments and his statutes, which I command thee this day.

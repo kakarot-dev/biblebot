@@ -1,0 +1,1 @@
+Surely I would take it upon my shoulder, and bind it as a crown to me.

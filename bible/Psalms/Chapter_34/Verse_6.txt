@@ -1,0 +1,1 @@
+This poor man cried, and the LORD heard him, and saved him out of all his troubles.

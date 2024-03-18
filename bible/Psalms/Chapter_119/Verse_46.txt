@@ -1,0 +1,1 @@
+I will speak of thy testimonies also before kings, and will not be ashamed.

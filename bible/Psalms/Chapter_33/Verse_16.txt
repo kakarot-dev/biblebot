@@ -1,0 +1,1 @@
+There is no king saved by the multitude of an host: a mighty man is not delivered by much strength.

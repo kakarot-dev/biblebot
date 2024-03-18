@@ -1,0 +1,1 @@
+For I give you good doctrine, forsake ye not my law.

@@ -1,0 +1,1 @@
+Of this man's seed hath God according to his promise raised unto Israel a Saviour, Jesus:

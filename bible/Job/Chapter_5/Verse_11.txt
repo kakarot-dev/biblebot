@@ -1,0 +1,1 @@
+To set up on high those that be low; that those which mourn may be exalted to safety.

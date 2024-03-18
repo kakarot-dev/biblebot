@@ -1,0 +1,1 @@
+Set your affection on things above, not on things on the earth.

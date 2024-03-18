@@ -1,0 +1,1 @@
+So Abraham prayed unto God: and God healed Abimelech, and his wife, and his maidservants; and they bare children.

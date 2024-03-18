@@ -1,0 +1,1 @@
+But with him that standeth here with us this day before the LORD our God, and also with him that is not here with us this day:

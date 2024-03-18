@@ -1,0 +1,1 @@
+And he put them on the shoulders of the ephod, that they should be stones for a memorial to the children of Israel; as the LORD commanded Moses.

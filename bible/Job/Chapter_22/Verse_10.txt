@@ -1,0 +1,1 @@
+Therefore snares are round about thee, and sudden fear troubleth thee;

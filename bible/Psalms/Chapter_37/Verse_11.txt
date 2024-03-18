@@ -1,0 +1,1 @@
+But the meek shall inherit the earth; and shall delight themselves in the abundance of peace.

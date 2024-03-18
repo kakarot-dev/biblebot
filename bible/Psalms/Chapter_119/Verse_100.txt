@@ -1,0 +1,1 @@
+I understand more than the ancients, because I keep thy precepts.

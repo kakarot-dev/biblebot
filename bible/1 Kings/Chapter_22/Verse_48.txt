@@ -1,0 +1,1 @@
+Jehoshaphat made ships of Tharshish to go to Ophir for gold: but they went not; for the ships were broken at Eziongeber.

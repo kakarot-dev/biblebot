@@ -1,0 +1,1 @@
+And thinkest thou this, O man, that judgest them which do such things, and doest the same, that thou shalt escape the judgment of God?

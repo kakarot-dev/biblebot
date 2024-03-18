@@ -1,0 +1,1 @@
+If Cain shall be avenged sevenfold, truly Lamech seventy and sevenfold.

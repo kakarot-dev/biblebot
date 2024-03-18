@@ -1,0 +1,1 @@
+And he marvelled because of their unbelief. And he went round about the villages, teaching.

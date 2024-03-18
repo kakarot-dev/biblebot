@@ -1,0 +1,1 @@
+And Sheva was scribe: and Zadok and Abiathar were the priests:

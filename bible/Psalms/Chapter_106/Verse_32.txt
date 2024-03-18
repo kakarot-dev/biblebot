@@ -1,0 +1,1 @@
+They angered him also at the waters of strife, so that it went ill with Moses for their sakes:

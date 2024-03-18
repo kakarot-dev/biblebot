@@ -1,0 +1,1 @@
+And it came to pass, when Baasha heard thereof, that he left off building of Ramah, and dwelt in Tirzah.

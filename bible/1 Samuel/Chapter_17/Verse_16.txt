@@ -1,0 +1,1 @@
+And the Philistine drew near morning and evening, and presented himself forty days.

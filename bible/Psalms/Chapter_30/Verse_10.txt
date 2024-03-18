@@ -1,0 +1,1 @@
+Hear, O LORD, and have mercy upon me: LORD, be thou my helper.

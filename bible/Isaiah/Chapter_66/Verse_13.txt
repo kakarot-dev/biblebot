@@ -1,0 +1,1 @@
+As one whom his mother comforteth, so will I comfort you; and ye shall be comforted in Jerusalem.

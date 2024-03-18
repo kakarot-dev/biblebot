@@ -1,0 +1,1 @@
+Have we not power to eat and to drink?

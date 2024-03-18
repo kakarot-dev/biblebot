@@ -1,0 +1,1 @@
+Ithai the son of Ribai of Gibeah, that pertained to the children of Benjamin, Benaiah the Pirathonite,

@@ -1,0 +1,1 @@
+Ummah also, and Aphek, and Rehob: twenty and two cities with their villages.

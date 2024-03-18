@@ -1,0 +1,1 @@
+And Moza begat Binea: Rapha was his son, Eleasah his son, Azel his son:

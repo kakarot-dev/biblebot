@@ -1,0 +1,1 @@
+And there shall dwell in Judah itself, and in all the cities thereof together, husbandmen, and they that go forth with flocks.

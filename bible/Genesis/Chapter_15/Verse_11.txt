@@ -1,0 +1,1 @@
+And when the fowls came down upon the carcases, Abram drove them away.

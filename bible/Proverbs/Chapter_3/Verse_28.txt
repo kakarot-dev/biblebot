@@ -1,0 +1,1 @@
+Say not unto thy neighbour, Go, and come again, and to morrow I will give; when thou hast it by thee.

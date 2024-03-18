@@ -1,0 +1,1 @@
+And Jacob said unto Joseph, God Almighty appeared unto me at Luz in the land of Canaan, and blessed me,

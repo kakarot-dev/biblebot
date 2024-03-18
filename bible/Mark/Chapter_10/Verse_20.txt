@@ -1,0 +1,1 @@
+And he answered and said unto him, Master, all these have I observed from my youth.

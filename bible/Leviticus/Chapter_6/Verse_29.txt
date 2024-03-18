@@ -1,0 +1,1 @@
+All the males among the priests shall eat thereof: it is most holy.

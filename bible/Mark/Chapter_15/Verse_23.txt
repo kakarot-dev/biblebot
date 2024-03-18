@@ -1,0 +1,1 @@
+And they gave him to drink wine mingled with myrrh: but he received it not.

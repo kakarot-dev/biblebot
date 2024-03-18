@@ -1,0 +1,1 @@
+Alas for the day! for the day of the LORD is at hand, and as a destruction from the Almighty shall it come.

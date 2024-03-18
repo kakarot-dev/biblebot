@@ -1,0 +1,1 @@
+And he commanded us to preach unto the people, and to testify that it is he which was ordained of God to be the Judge of quick and dead.

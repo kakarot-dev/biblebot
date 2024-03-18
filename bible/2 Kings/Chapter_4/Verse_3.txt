@@ -1,0 +1,1 @@
+Then he said, Go, borrow thee vessels abroad of all thy neighbours, even empty vessels; borrow not a few.

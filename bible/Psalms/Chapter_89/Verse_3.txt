@@ -1,0 +1,1 @@
+I have made a covenant with my chosen, I have sworn unto David my servant,

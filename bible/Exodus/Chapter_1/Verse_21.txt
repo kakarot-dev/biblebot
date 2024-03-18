@@ -1,0 +1,1 @@
+And it came to pass, because the midwives feared God, that he made them houses.

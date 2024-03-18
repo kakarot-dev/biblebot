@@ -1,0 +1,1 @@
+The men of Kirjathjearim, Chephirah, and Beeroth, seven hundred forty and three.

@@ -1,0 +1,1 @@
+Therefore many of them believed; also of honourable women which were Greeks, and of men, not a few.

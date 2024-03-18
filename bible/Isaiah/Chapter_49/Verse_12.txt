@@ -1,0 +1,1 @@
+Behold, these shall come from far: and, lo, these from the north and from the west; and these from the land of Sinim.

@@ -1,0 +1,1 @@
+Who have received the law by the disposition of angels, and have not kept it.

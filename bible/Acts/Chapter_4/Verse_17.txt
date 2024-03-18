@@ -1,0 +1,1 @@
+But that it spread no further among the people, let us straitly threaten them, that they speak henceforth to no man in this name.

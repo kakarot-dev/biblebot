@@ -1,0 +1,1 @@
+And the Levites: both Jeshua the son of Azaniah, Binnui of the sons of Henadad, Kadmiel;

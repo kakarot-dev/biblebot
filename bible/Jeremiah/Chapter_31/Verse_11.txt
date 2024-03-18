@@ -1,0 +1,1 @@
+For the LORD hath redeemed Jacob, and ransomed him from the hand of him that was stronger than he.

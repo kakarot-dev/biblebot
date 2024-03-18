@@ -1,0 +1,1 @@
+These chief fathers of the Levites were chief throughout their generations; these dwelt at Jerusalem.

@@ -1,0 +1,1 @@
+And of Jezebel also spake the LORD, saying, The dogs shall eat Jezebel by the wall of Jezreel.

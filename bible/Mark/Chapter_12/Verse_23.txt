@@ -1,0 +1,1 @@
+In the resurrection therefore, when they shall rise, whose wife shall she be of them? for the seven had her to wife.

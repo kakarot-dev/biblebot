@@ -1,0 +1,1 @@
+When they went, they went upon their four sides: and they turned not when they went.

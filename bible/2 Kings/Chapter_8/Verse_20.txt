@@ -1,0 +1,1 @@
+In his days Edom revolted from under the hand of Judah, and made a king over themselves.

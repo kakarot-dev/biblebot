@@ -1,0 +1,1 @@
+And at Bethuel, and at Hormah, and at Ziklag,

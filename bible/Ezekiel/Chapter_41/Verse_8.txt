@@ -1,0 +1,1 @@
+I saw also the height of the house round about: the foundations of the side chambers were a full reed of six great cubits.

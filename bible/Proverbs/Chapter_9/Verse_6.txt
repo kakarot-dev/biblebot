@@ -1,0 +1,1 @@
+Forsake the foolish, and live; and go in the way of understanding.

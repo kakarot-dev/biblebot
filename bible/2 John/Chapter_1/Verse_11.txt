@@ -1,0 +1,1 @@
+For he that biddeth him God speed is partaker of his evil deeds.

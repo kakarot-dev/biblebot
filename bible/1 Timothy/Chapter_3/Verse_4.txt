@@ -1,0 +1,1 @@
+One that ruleth well his own house, having his children in subjection with all gravity;

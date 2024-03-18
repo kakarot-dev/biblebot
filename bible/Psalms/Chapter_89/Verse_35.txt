@@ -1,0 +1,1 @@
+Once have I sworn by my holiness that I will not lie unto David.

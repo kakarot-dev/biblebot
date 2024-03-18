@@ -1,0 +1,1 @@
+To judge the fatherless and the oppressed, that the man of the earth may no more oppress.

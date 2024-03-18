@@ -1,0 +1,1 @@
+Despise not prophesyings.

@@ -1,0 +1,1 @@
+And these are the golden emerods which the Philistines returned for a trespass offering unto the LORD; for Ashdod one, for Gaza one, for Askelon one, for Gath one, for Ekron one;

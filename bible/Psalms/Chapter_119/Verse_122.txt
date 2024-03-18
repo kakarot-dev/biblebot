@@ -1,0 +1,1 @@
+Be surety for thy servant for good: let not the proud oppress me.

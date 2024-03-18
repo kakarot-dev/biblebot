@@ -1,0 +1,1 @@
+Beloved, if God so loved us, we ought also to love one another.

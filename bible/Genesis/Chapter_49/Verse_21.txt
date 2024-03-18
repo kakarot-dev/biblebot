@@ -1,0 +1,1 @@
+Naphtali is a hind let loose: he giveth goodly words.

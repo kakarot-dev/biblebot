@@ -1,0 +1,1 @@
+Ye that fear the LORD, trust in the LORD: he is their help and their shield.

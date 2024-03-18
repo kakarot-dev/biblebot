@@ -1,0 +1,1 @@
+I have not sent these prophets, yet they ran: I have not spoken to them, yet they prophesied.

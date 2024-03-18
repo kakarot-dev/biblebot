@@ -1,0 +1,1 @@
+Salute the brethren which are in Laodicea, and Nymphas, and the church which is in his house.

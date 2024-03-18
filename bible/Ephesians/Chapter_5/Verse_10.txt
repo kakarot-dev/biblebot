@@ -1,0 +1,1 @@
+Proving what is acceptable unto the Lord.

@@ -1,0 +1,1 @@
+And he took him by the right hand, and lifted him up: and immediately his feet and ankle bones received strength.

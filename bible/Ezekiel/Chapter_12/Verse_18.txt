@@ -1,0 +1,1 @@
+Son of man, eat thy bread with quaking, and drink thy water with trembling and with carefulness;

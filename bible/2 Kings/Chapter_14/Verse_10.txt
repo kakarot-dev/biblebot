@@ -1,0 +1,1 @@
+Thou hast indeed smitten Edom, and thine heart hath lifted thee up: glory of this, and tarry at home: for why shouldest thou meddle to thy hurt, that thou shouldest fall, even thou, and Judah with thee?

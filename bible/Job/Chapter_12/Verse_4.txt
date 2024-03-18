@@ -1,0 +1,1 @@
+I am as one mocked of his neighbour, who calleth upon God, and he answereth him: the just upright man is laughed to scorn.

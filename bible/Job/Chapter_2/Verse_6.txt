@@ -1,0 +1,1 @@
+And the LORD said unto Satan, Behold, he is in thine hand; but save his life.

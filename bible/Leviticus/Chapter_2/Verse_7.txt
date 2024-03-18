@@ -1,0 +1,1 @@
+And if thy oblation be a meat offering baken in the fryingpan, it shall be made of fine flour with oil.

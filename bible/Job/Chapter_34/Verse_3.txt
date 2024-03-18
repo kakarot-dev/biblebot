@@ -1,0 +1,1 @@
+For the ear trieth words, as the mouth tasteth meat.

@@ -1,0 +1,1 @@
+And Caleb stilled the people before Moses, and said, Let us go up at once, and possess it; for we are well able to overcome it.

@@ -1,0 +1,1 @@
+And they took him, and cast him into a pit: and the pit was empty, there was no water in it.

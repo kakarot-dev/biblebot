@@ -1,0 +1,1 @@
+Because the creature itself also shall be delivered from the bondage of corruption into the glorious liberty of the children of God.

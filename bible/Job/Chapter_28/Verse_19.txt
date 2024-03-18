@@ -1,0 +1,1 @@
+The topaz of Ethiopia shall not equal it, neither shall it be valued with pure gold.

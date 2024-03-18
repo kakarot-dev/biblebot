@@ -1,0 +1,1 @@
+Teach me good judgment and knowledge: for I have believed thy commandments.

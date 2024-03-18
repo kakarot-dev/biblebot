@@ -1,0 +1,1 @@
+The king of Eglon, one; the king of Gezer, one;

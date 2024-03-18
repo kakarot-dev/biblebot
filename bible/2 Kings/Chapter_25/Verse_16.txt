@@ -1,0 +1,1 @@
+The two pillars, one sea, and the bases which Solomon had made for the house of the LORD; the brass of all these vessels was without weight.

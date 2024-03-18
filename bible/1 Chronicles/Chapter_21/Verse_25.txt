@@ -1,0 +1,1 @@
+So David gave to Ornan for the place six hundred shekels of gold by weight.

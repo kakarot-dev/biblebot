@@ -1,0 +1,1 @@
+Desire not the night, when people are cut off in their place.

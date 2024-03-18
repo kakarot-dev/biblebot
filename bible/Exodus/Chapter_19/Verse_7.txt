@@ -1,0 +1,1 @@
+And Moses came and called for the elders of the people, and laid before their faces all these words which the LORD commanded him.

@@ -1,0 +1,1 @@
+I delight to do thy will, O my God: yea, thy law is within my heart.

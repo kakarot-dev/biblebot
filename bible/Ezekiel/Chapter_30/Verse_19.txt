@@ -1,0 +1,1 @@
+Thus will I execute judgments in Egypt: and they shall know that I am the LORD.

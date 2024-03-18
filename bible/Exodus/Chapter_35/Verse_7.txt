@@ -1,0 +1,1 @@
+And rams' skins dyed red, and badgers' skins, and shittim wood,

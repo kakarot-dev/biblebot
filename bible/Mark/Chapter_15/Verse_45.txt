@@ -1,0 +1,1 @@
+And when he knew it of the centurion, he gave the body to Joseph.

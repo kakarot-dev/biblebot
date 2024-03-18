@@ -1,0 +1,1 @@
+Whoso is wise, and will observe these things, even they shall understand the lovingkindness of the LORD.

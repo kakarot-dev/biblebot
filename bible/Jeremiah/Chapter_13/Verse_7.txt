@@ -1,0 +1,1 @@
+Then I went to Euphrates, and digged, and took the girdle from the place where I had hid it: and, behold, the girdle was marred, it was profitable for nothing.

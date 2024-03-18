@@ -1,0 +1,1 @@
+For while they be folden together as thorns, and while they are drunken as drunkards, they shall be devoured as stubble fully dry.

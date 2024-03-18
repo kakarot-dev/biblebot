@@ -1,0 +1,1 @@
+And Keilah, and Achzib, and Mareshah; nine cities with their villages:

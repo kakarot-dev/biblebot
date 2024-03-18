@@ -1,0 +1,1 @@
+If thou hast nothing to pay, why should he take away thy bed from under thee?

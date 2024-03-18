@@ -1,0 +1,1 @@
+The LORD is my strength and song, and is become my salvation.

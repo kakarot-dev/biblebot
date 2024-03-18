@@ -1,0 +1,1 @@
+Much every way: chiefly, because that unto them were committed the oracles of God.

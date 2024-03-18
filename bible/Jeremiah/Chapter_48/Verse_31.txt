@@ -1,0 +1,1 @@
+Therefore will I howl for Moab, and I will cry out for all Moab; mine heart shall mourn for the men of Kirheres.

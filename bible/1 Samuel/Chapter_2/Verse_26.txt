@@ -1,0 +1,1 @@
+And the child Samuel grew on, and was in favour both with the LORD, and also with men.

@@ -1,0 +1,1 @@
+And ye are Christ's; and Christ is God's.

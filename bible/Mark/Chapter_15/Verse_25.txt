@@ -1,0 +1,1 @@
+And it was the third hour, and they crucified him.

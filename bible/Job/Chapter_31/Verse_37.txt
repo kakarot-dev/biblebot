@@ -1,0 +1,1 @@
+I would declare unto him the number of my steps; as a prince would I go near unto him.

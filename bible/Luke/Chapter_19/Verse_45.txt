@@ -1,0 +1,1 @@
+And he went into the temple, and began to cast out them that sold therein, and them that bought;

@@ -1,0 +1,1 @@
+Your riches are corrupted, and your garments are motheaten.

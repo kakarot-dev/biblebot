@@ -1,0 +1,1 @@
+But thou hast fulfilled the judgment of the wicked: judgment and justice take hold on thee.

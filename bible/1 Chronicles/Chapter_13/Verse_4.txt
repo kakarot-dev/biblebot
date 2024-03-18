@@ -1,0 +1,1 @@
+And all the congregation said that they would do so: for the thing was right in the eyes of all the people.

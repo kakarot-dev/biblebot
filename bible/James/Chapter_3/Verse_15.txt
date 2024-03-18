@@ -1,0 +1,1 @@
+This wisdom descendeth not from above, but is earthly, sensual, devilish.

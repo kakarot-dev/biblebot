@@ -1,0 +1,1 @@
+He is a leprous man, he is unclean: the priest shall pronounce him utterly unclean; his plague is in his head.

@@ -1,0 +1,1 @@
+And when they shall blow with them, all the assembly shall assemble themselves to thee at the door of the tabernacle of the congregation.

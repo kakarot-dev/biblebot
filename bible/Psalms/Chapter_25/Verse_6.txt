@@ -1,0 +1,1 @@
+Remember, O LORD, thy tender mercies and thy lovingkindnesses; for they have been ever of old.

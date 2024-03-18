@@ -1,0 +1,1 @@
+And say to Archippus, Take heed to the ministry which thou hast received in the Lord, that thou fulfil it.

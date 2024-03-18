@@ -1,0 +1,1 @@
+Who sent tokens and wonders into the midst of thee, O Egypt, upon Pharaoh, and upon all his servants.

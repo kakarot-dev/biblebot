@@ -1,0 +1,1 @@
+For he served Baal, and worshipped him, and provoked to anger the LORD God of Israel, according to all that his father had done.

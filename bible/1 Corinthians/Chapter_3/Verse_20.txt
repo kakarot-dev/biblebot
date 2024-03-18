@@ -1,0 +1,1 @@
+And again, The Lord knoweth the thoughts of the wise, that they are vain.

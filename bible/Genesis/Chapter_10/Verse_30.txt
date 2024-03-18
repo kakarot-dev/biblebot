@@ -1,0 +1,1 @@
+And their dwelling was from Mesha, as thou goest unto Sephar a mount of the east.

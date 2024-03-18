@@ -1,0 +1,1 @@
+Their priests fell by the sword; and their widows made no lamentation.

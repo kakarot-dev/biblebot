@@ -1,0 +1,1 @@
+All these of the sons of Obededom: they and their sons and their brethren, able men for strength for the service, were threescore and two of Obededom.

@@ -1,0 +1,1 @@
+And, behold, the glory of the God of Israel was there, according to the vision that I saw in the plain.

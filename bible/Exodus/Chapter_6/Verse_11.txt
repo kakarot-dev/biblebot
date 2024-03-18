@@ -1,0 +1,1 @@
+Go in, speak unto Pharaoh king of Egypt, that he let the children of Israel go out of his land.

@@ -1,0 +1,1 @@
+Let her not be as one dead, of whom the flesh is half consumed when he cometh out of his mother's womb.

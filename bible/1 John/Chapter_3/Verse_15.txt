@@ -1,0 +1,1 @@
+Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.

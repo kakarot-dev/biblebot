@@ -1,0 +1,1 @@
+And Saul said, There shall not a man be put to death this day: for to day the LORD hath wrought salvation in Israel.

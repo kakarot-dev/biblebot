@@ -1,0 +1,1 @@
+And he stood, and blessed all the congregation of Israel with a loud voice, saying,

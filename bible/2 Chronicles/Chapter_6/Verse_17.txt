@@ -1,0 +1,1 @@
+Now then, O LORD God of Israel, let thy word be verified, which thou hast spoken unto thy servant David.

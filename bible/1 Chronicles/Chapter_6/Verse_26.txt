@@ -1,0 +1,1 @@
+As for Elkanah: the sons of Elkanah; Zophai his son, and Nahath his son,

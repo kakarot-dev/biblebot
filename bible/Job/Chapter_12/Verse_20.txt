@@ -1,0 +1,1 @@
+He removeth away the speech of the trusty, and taketh away the understanding of the aged.

@@ -1,0 +1,1 @@
+And thou shalt have goats' milk enough for thy food, for the food of thy household, and for the maintenance for thy maidens.

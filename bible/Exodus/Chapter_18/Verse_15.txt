@@ -1,0 +1,1 @@
+And Moses said unto his father in law, Because the people come unto me to enquire of God:

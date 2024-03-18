@@ -1,0 +1,1 @@
+And he shall judge the world in righteousness, he shall minister judgment to the people in uprightness.

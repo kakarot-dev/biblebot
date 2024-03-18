@@ -1,0 +1,1 @@
+And they had no child, because that Elisabeth was barren, and they both were now well stricken in years.

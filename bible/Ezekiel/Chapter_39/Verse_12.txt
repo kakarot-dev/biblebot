@@ -1,0 +1,1 @@
+And seven months shall the house of Israel be burying of them, that they may cleanse the land.

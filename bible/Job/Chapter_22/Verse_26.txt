@@ -1,0 +1,1 @@
+For then shalt thou have thy delight in the Almighty, and shalt lift up thy face unto God.

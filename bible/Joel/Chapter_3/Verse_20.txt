@@ -1,0 +1,1 @@
+But Judah shall dwell for ever, and Jerusalem from generation to generation.

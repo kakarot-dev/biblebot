@@ -1,0 +1,1 @@
+He casteth forth his ice like morsels: who can stand before his cold?

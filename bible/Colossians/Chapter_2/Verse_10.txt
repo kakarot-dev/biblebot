@@ -1,0 +1,1 @@
+And ye are complete in him, which is the head of all principality and power:

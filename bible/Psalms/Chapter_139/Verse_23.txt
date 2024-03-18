@@ -1,0 +1,1 @@
+Search me, O God, and know my heart: try me, and know my thoughts:

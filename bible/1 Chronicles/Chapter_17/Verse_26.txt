@@ -1,0 +1,1 @@
+And now, LORD, thou art God, and hast promised this goodness unto thy servant:

@@ -1,0 +1,1 @@
+He brought them out of darkness and the shadow of death, and brake their bands in sunder.

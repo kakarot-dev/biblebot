@@ -1,0 +1,1 @@
+Give a portion to seven, and also to eight; for thou knowest not what evil shall be upon the earth.

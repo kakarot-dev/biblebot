@@ -1,0 +1,1 @@
+And thou shalt speak unto the children of Israel, saying, This shall be an holy anointing oil unto me throughout your generations.

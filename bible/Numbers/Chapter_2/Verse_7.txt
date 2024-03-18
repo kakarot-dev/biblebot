@@ -1,0 +1,1 @@
+Then the tribe of Zebulun: and Eliab the son of Helon shall be captain of the children of Zebulun.

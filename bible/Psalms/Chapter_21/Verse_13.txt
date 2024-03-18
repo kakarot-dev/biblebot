@@ -1,0 +1,1 @@
+Be thou exalted, LORD, in thine own strength: so will we sing and praise thy power.

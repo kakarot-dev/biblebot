@@ -1,0 +1,1 @@
+Ye which rejoice in a thing of nought, which say, Have we not taken to us horns by our own strength?

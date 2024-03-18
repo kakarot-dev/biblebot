@@ -1,0 +1,1 @@
+When he made a decree for the rain, and a way for the lightning of the thunder:

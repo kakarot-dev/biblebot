@@ -1,0 +1,1 @@
+Therefore also will I make thee sick in smiting thee, in making thee desolate because of thy sins.

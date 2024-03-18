@@ -1,0 +1,1 @@
+And his allowance was a continual allowance given him of the king, a daily rate for every day, all the days of his life.

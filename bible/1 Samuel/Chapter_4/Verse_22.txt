@@ -1,0 +1,1 @@
+And she said, The glory is departed from Israel: for the ark of God is taken.

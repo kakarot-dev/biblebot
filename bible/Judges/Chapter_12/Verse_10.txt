@@ -1,0 +1,1 @@
+Then died Ibzan, and was buried at Bethlehem.

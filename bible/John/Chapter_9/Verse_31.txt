@@ -1,0 +1,1 @@
+Now we know that God heareth not sinners: but if any man be a worshipper of God, and doeth his will, him he heareth.

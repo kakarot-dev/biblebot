@@ -1,0 +1,1 @@
+For their heart was not right with him, neither were they stedfast in his covenant.

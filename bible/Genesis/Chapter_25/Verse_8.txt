@@ -1,0 +1,1 @@
+Then Abraham gave up the ghost, and died in a good old age, an old man, and full of years; and was gathered to his people.

@@ -1,0 +1,1 @@
+Now a mediator is not a mediator of one, but God is one.

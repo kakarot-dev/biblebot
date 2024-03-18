@@ -1,0 +1,1 @@
+And they dwelt at Beersheba, and Moladah, and Hazarshual,

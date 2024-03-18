@@ -1,0 +1,1 @@
+These are the sons of Esau, who is Edom, and these are their dukes.

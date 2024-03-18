@@ -1,0 +1,1 @@
+And when they had left their gods there, David gave a commandment, and they were burned with fire.

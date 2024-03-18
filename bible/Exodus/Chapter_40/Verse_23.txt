@@ -1,0 +1,1 @@
+And he set the bread in order upon it before the LORD; as the LORD had commanded Moses.

@@ -1,0 +1,1 @@
+Whosoever shall confess that Jesus is the Son of God, God dwelleth in him, and he in God.

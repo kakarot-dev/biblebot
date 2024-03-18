@@ -1,0 +1,1 @@
+For the LORD giveth wisdom: out of his mouth cometh knowledge and understanding.

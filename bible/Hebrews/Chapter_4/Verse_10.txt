@@ -1,0 +1,1 @@
+For he that is entered into his rest, he also hath ceased from his own works, as God did from his.

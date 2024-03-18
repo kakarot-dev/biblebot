@@ -1,0 +1,1 @@
+Knowing this first, that no prophecy of the scripture is of any private interpretation.

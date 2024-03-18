@@ -1,0 +1,1 @@
+And the weight of the nails was fifty shekels of gold. And he overlaid the upper chambers with gold.

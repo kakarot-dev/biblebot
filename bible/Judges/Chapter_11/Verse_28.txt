@@ -1,0 +1,1 @@
+Howbeit the king of the children of Ammon hearkened not unto the words of Jephthah which he sent him.

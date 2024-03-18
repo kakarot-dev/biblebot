@@ -1,0 +1,1 @@
+Salute Apelles approved in Christ. Salute them which are of Aristobulus' household.

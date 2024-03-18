@@ -1,0 +1,1 @@
+And he walked in the way of Asa his father, and departed not from it, doing that which was right in the sight of the LORD.

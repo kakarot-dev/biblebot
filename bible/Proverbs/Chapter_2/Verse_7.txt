@@ -1,0 +1,1 @@
+He layeth up sound wisdom for the righteous: he is a buckler to them that walk uprightly.

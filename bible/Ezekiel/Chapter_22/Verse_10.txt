@@ -1,0 +1,1 @@
+In thee have they discovered their fathers' nakedness: in thee have they humbled her that was set apart for pollution.

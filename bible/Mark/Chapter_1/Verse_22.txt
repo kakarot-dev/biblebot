@@ -1,0 +1,1 @@
+And they were astonished at his doctrine: for he taught them as one that had authority, and not as the scribes.

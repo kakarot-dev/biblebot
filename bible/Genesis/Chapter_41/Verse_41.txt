@@ -1,0 +1,1 @@
+And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.

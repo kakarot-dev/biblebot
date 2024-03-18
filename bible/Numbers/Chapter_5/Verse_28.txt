@@ -1,0 +1,1 @@
+And if the woman be not defiled, but be clean; then she shall be free, and shall conceive seed.

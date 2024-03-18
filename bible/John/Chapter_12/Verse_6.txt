@@ -1,0 +1,1 @@
+This he said, not that he cared for the poor; but because he was a thief, and had the bag, and bare what was put therein.

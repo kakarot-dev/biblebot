@@ -1,0 +1,1 @@
+The children of Shem; Elam, and Asshur, and Arphaxad, and Lud, and Aram.

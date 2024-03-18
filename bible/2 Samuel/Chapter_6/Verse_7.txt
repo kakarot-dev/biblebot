@@ -1,0 +1,1 @@
+And the anger of the LORD was kindled against Uzzah; and God smote him there for his error; and there he died by the ark of God.

@@ -1,0 +1,1 @@
+And forgetteth that the foot may crush them, or that the wild beast may break them.

@@ -1,0 +1,1 @@
+Be not hasty to go out of his sight: stand not in an evil thing; for he doeth whatsoever pleaseth him.

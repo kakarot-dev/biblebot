@@ -1,0 +1,1 @@
+By what way is the light parted, which scattereth the east wind upon the earth?

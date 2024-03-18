@@ -1,0 +1,1 @@
+For evildoers shall be cut off: but those that wait upon the LORD, they shall inherit the earth.

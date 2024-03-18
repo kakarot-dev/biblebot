@@ -1,0 +1,1 @@
+But Jehu took no heed to walk in the law of the LORD God of Israel with all his heart: for he departed not from the sins of Jeroboam, which made Israel to sin.

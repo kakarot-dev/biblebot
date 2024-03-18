@@ -1,0 +1,1 @@
+And of Shemida, the family of the Shemidaites: and of Hepher, the family of the Hepherites.

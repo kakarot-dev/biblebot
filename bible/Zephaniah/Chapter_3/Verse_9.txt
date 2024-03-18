@@ -1,0 +1,1 @@
+For then will I turn to the people a pure language, that they may all call upon the name of the LORD, to serve him with one consent.

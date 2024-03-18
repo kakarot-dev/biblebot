@@ -1,0 +1,1 @@
+And Ahitub begat Zadok, and Zadok begat Shallum,

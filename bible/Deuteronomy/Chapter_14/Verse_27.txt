@@ -1,0 +1,1 @@
+And the Levite that is within thy gates; thou shalt not forsake him; for he hath no part nor inheritance with thee.

@@ -1,0 +1,1 @@
+Then in the audience of all the people he said unto his disciples,

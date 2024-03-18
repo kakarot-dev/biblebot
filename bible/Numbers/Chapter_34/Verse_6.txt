@@ -1,0 +1,1 @@
+And as for the western border, ye shall even have the great sea for a border: this shall be your west border.

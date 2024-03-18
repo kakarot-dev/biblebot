@@ -1,0 +1,1 @@
+I love them that love me; and those that seek me early shall find me.

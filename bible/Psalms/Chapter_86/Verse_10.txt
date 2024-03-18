@@ -1,0 +1,1 @@
+For thou art great, and doest wondrous things: thou art God alone.

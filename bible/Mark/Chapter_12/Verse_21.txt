@@ -1,0 +1,1 @@
+And the second took her, and died, neither left he any seed: and the third likewise.

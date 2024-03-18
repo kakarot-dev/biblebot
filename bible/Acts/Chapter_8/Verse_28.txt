@@ -1,0 +1,1 @@
+Was returning, and sitting in his chariot read Esaias the prophet.

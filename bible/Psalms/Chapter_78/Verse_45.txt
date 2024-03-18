@@ -1,0 +1,1 @@
+He sent divers sorts of flies among them, which devoured them; and frogs, which destroyed them.

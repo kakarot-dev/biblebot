@@ -1,0 +1,1 @@
+Ye shall offer these beside the burnt offering in the morning, which is for a continual burnt offering.

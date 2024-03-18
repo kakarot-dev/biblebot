@@ -1,0 +1,1 @@
+For strangers are risen up against me, and oppressors seek after my soul: they have not set God before them. Selah.

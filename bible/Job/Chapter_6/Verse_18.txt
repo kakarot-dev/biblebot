@@ -1,0 +1,1 @@
+The paths of their way are turned aside; they go to nothing, and perish.

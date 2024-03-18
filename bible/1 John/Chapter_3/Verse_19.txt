@@ -1,0 +1,1 @@
+And hereby we know that we are of the truth, and shall assure our hearts before him.

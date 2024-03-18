@@ -1,0 +1,1 @@
+And Eshton begat Bethrapha, and Paseah, and Tehinnah the father of Irnahash. These are the men of Rechah.

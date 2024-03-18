@@ -1,0 +1,1 @@
+And when all the men of the tower of Shechem heard that, they entered into an hold of the house of the god Berith.

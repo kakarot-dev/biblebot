@@ -1,0 +1,1 @@
+We will make thee borders of gold with studs of silver.

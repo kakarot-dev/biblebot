@@ -1,0 +1,1 @@
+And the temple and the sanctuary had two doors.

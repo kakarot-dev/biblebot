@@ -1,0 +1,1 @@
+They cause him to go naked without clothing, and they take away the sheaf from the hungry;

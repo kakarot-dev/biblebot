@@ -1,0 +1,1 @@
+I will bless the LORD, who hath given me counsel: my reins also instruct me in the night seasons.

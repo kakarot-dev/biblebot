@@ -1,0 +1,1 @@
+(Of whom the world was not worthy:) they wandered in deserts, and in mountains, and in dens and caves of the earth.

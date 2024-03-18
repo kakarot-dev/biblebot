@@ -1,0 +1,1 @@
+They drive away the ass of the fatherless, they take the widow's ox for a pledge.

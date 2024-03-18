@@ -1,0 +1,1 @@
+And Moses brought their cause before the LORD.

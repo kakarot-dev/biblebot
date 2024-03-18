@@ -1,0 +1,1 @@
+And the sons of Kenaz; Othniel, and Seraiah: and the sons of Othniel; Hathath.

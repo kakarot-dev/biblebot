@@ -1,0 +1,1 @@
+Save that the Holy Ghost witnesseth in every city, saying that bonds and afflictions abide me.

@@ -1,0 +1,1 @@
+I also will laugh at your calamity; I will mock when your fear cometh;

@@ -1,0 +1,1 @@
+For all his judgments were before me, and I did not put away his statutes from me.

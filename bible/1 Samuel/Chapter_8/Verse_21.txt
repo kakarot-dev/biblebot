@@ -1,0 +1,1 @@
+And Samuel heard all the words of the people, and he rehearsed them in the ears of the LORD.

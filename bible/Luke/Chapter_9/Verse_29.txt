@@ -1,0 +1,1 @@
+And as he prayed, the fashion of his countenance was altered, and his raiment was white and glistering.

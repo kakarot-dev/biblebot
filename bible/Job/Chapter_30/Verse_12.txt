@@ -1,0 +1,1 @@
+Upon my right hand rise the youth; they push away my feet, and they raise up against me the ways of their destruction.

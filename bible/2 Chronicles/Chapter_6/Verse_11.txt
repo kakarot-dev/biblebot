@@ -1,0 +1,1 @@
+And in it have I put the ark, wherein is the covenant of the LORD, that he made with the children of Israel.

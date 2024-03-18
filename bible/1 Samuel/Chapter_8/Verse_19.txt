@@ -1,0 +1,1 @@
+Nevertheless the people refused to obey the voice of Samuel; and they said, Nay; but we will have a king over us;

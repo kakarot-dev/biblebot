@@ -1,0 +1,1 @@
+For they shall be an ornament of grace unto thy head, and chains about thy neck.

@@ -1,0 +1,1 @@
+And the thing pleased the king and all the congregation.

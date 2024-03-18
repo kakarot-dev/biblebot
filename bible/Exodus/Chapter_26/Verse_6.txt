@@ -1,0 +1,1 @@
+And thou shalt make fifty taches of gold, and couple the curtains together with the taches: and it shall be one tabernacle.

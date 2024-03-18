@@ -1,0 +1,1 @@
+There is a path which no fowl knoweth, and which the vulture's eye hath not seen:

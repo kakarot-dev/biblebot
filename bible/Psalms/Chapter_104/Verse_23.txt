@@ -1,0 +1,1 @@
+Man goeth forth unto his work and to his labour until the evening.

@@ -1,0 +1,1 @@
+And they cast out many devils, and anointed with oil many that were sick, and healed them.

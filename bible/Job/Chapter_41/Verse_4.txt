@@ -1,0 +1,1 @@
+Will he make a covenant with thee? wilt thou take him for a servant for ever?

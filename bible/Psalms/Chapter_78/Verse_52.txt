@@ -1,0 +1,1 @@
+But made his own people to go forth like sheep, and guided them in the wilderness like a flock.

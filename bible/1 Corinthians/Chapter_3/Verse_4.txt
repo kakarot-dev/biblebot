@@ -1,0 +1,1 @@
+For while one saith, I am of Paul; and another, I am of Apollos; are ye not carnal?

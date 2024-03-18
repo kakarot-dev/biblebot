@@ -1,0 +1,1 @@
+And the children of Gad built Dibon, and Ataroth, and Aroer,

@@ -1,0 +1,1 @@
+To Obededom southward; and to his sons the house of Asuppim.

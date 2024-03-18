@@ -1,0 +1,1 @@
+Moreover I call God for a record upon my soul, that to spare you I came not as yet unto Corinth.

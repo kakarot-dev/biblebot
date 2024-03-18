@@ -1,0 +1,1 @@
+For the upright shall dwell in the land, and the perfect shall remain in it.

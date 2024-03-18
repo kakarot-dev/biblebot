@@ -1,0 +1,1 @@
+Wherefore, as by one man sin entered into the world, and death by sin; and so death passed upon all men, for that all have sinned:

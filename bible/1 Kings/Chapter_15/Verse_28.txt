@@ -1,0 +1,1 @@
+Even in the third year of Asa king of Judah did Baasha slay him, and reigned in his stead.

@@ -1,0 +1,1 @@
+According to their pasture, so were they filled; they were filled, and their heart was exalted; therefore have they forgotten me.

@@ -1,0 +1,1 @@
+Give thanks unto the LORD, call upon his name, make known his deeds among the people.

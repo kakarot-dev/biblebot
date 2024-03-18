@@ -1,0 +1,1 @@
+And they departed from Punon, and pitched in Oboth.

@@ -1,0 +1,1 @@
+So the LORD saved Israel that day: and the battle passed over unto Bethaven.

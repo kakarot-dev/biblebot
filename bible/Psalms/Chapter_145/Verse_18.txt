@@ -1,0 +1,1 @@
+The LORD is nigh unto all them that call upon him, to all that call upon him in truth.

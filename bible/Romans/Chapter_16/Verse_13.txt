@@ -1,0 +1,1 @@
+Salute Rufus chosen in the Lord, and his mother and mine.

@@ -1,0 +1,1 @@
+A wise man will hear, and will increase learning; and a man of understanding shall attain unto wise counsels:

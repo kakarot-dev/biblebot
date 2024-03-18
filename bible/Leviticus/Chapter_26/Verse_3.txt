@@ -1,0 +1,1 @@
+If ye walk in my statutes, and keep my commandments, and do them;

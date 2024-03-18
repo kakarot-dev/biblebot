@@ -1,0 +1,1 @@
+And Elijah went to shew himself unto Ahab. And there was a sore famine in Samaria.

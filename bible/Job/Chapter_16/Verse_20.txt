@@ -1,0 +1,1 @@
+My friends scorn me: but mine eye poureth out tears unto God.

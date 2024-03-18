@@ -1,0 +1,1 @@
+Will ye speak wickedly for God? and talk deceitfully for him?

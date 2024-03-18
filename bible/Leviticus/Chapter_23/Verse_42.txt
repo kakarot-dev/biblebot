@@ -1,0 +1,1 @@
+Ye shall dwell in booths seven days; all that are Israelites born shall dwell in booths:

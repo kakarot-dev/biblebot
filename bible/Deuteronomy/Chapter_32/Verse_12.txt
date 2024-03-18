@@ -1,0 +1,1 @@
+So the LORD alone did lead him, and there was no strange god with him.

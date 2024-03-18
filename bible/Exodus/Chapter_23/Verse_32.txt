@@ -1,0 +1,1 @@
+Thou shalt make no covenant with them, nor with their gods.

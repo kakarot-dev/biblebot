@@ -1,0 +1,1 @@
+And those which remain shall hear, and fear, and shall henceforth commit no more any such evil among you.

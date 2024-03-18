@@ -1,0 +1,1 @@
+God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;

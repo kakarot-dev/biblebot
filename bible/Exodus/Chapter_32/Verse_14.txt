@@ -1,0 +1,1 @@
+And the LORD repented of the evil which he thought to do unto his people.

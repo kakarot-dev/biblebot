@@ -1,0 +1,1 @@
+Hadar, and Tema, Jetur, Naphish, and Kedemah:

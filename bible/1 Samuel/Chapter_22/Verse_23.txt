@@ -1,0 +1,1 @@
+Abide thou with me, fear not: for he that seeketh my life seeketh thy life: but with me thou shalt be in safeguard.

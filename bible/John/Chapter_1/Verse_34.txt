@@ -1,0 +1,1 @@
+And I saw, and bare record that this is the Son of God.

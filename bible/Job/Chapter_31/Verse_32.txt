@@ -1,0 +1,1 @@
+The stranger did not lodge in the street: but I opened my doors to the traveller.

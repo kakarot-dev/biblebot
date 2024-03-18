@@ -1,0 +1,1 @@
+The son of Dekar, in Makaz, and in Shaalbim, and Bethshemesh, and Elonbethhanan:

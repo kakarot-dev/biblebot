@@ -1,0 +1,1 @@
+The king of Jarmuth, one; the king of Lachish, one;

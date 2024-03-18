@@ -1,0 +1,1 @@
+My foot hath held his steps, his way have I kept, and not declined.

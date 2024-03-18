@@ -1,0 +1,1 @@
+Whilst it is yet in his greenness, and not cut down, it withereth before any other herb.

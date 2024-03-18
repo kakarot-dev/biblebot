@@ -1,0 +1,1 @@
+And they departed from Ebronah, and encamped at Eziongaber.

@@ -1,0 +1,1 @@
+And thou shalt anoint the tabernacle of the congregation therewith, and the ark of the testimony,

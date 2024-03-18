@@ -1,0 +1,1 @@
+And I will kindle a fire in the wall of Damascus, and it shall consume the palaces of Benhadad.

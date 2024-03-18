@@ -1,0 +1,1 @@
+And when all Jabeshgilead heard all that the Philistines had done to Saul,

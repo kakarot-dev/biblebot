@@ -1,0 +1,1 @@
+And Zilpah Leah's maid bare Jacob a son.

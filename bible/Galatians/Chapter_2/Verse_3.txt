@@ -1,0 +1,1 @@
+But neither Titus, who was with me, being a Greek, was compelled to be circumcised:

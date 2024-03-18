@@ -1,0 +1,1 @@
+Surely the serpent will bite without enchantment; and a babbler is no better.

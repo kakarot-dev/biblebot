@@ -1,0 +1,1 @@
+But the hypocrites in heart heap up wrath: they cry not when he bindeth them.

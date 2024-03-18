@@ -1,0 +1,1 @@
+And it is yet far more evident: for that after the similitude of Melchisedec there ariseth another priest,

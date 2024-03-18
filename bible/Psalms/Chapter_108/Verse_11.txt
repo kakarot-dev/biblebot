@@ -1,0 +1,1 @@
+Wilt not thou, O God, who hast cast us off? and wilt not thou, O God, go forth with our hosts?

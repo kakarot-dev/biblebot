@@ -1,0 +1,1 @@
+And it came to pass, when all the people were clean passed over, that the ark of the LORD passed over, and the priests, in the presence of the people.

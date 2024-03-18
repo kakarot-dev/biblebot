@@ -1,0 +1,1 @@
+I know his wrath, saith the LORD; but it shall not be so; his lies shall not so effect it.

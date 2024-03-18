@@ -1,0 +1,1 @@
+He gave his people over also unto the sword; and was wroth with his inheritance.

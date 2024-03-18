@@ -1,0 +1,1 @@
+His breath goeth forth, he returneth to his earth; in that very day his thoughts perish.

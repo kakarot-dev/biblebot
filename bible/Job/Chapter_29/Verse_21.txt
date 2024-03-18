@@ -1,0 +1,1 @@
+Unto me men gave ear, and waited, and kept silence at my counsel.

@@ -1,0 +1,1 @@
+And when we had sailed over the sea of Cilicia and Pamphylia, we came to Myra, a city of Lycia.

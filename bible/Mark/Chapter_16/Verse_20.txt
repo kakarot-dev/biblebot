@@ -1,0 +1,1 @@
+And they went forth, and preached every where, the Lord working with them, and confirming the word with signs following. Amen.

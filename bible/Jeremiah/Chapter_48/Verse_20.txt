@@ -1,0 +1,1 @@
+Moab is confounded; for it is broken down: howl and cry; tell ye it in Arnon, that Moab is spoiled,

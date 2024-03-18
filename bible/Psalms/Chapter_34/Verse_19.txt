@@ -1,0 +1,1 @@
+Many are the afflictions of the righteous: but the LORD delivereth him out of them all.

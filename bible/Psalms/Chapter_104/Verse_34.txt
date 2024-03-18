@@ -1,0 +1,1 @@
+My meditation of him shall be sweet: I will be glad in the LORD.

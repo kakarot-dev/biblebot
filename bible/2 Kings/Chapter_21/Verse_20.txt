@@ -1,0 +1,1 @@
+And he did that which was evil in the sight of the LORD, as his father Manasseh did.

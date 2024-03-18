@@ -1,0 +1,1 @@
+Of Naphtali; Ahira the son of Enan.

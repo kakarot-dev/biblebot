@@ -1,0 +1,1 @@
+For by them judgeth he the people; he giveth meat in abundance.

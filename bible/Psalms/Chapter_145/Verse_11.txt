@@ -1,0 +1,1 @@
+They shall speak of the glory of thy kingdom, and talk of thy power;

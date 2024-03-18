@@ -1,0 +1,1 @@
+The children of Judah that bare shield and spear were six thousand and eight hundred, ready armed to the war.

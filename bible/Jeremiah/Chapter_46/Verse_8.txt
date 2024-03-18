@@ -1,0 +1,1 @@
+Egypt riseth up like a flood, and his waters are moved like the rivers; and he saith, I will go up, and will cover the earth; I will destroy the city and the inhabitants thereof.

@@ -1,0 +1,1 @@
+Give unto the LORD the glory due unto his name: bring an offering, and come into his courts.

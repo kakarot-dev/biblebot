@@ -1,0 +1,1 @@
+Shall even he that hateth right govern? and wilt thou condemn him that is most just?

@@ -1,0 +1,1 @@
+Sihon king of the Amorites: for his mercy endureth for ever:

@@ -1,0 +1,1 @@
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.

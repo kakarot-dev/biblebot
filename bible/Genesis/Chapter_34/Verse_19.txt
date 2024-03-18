@@ -1,0 +1,1 @@
+And the young man deferred not to do the thing, because he had delight in Jacob's daughter: and he was more honourable than all the house of his father.

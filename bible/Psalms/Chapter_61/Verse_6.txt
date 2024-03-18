@@ -1,0 +1,1 @@
+Thou wilt prolong the king's life: and his years as many generations.

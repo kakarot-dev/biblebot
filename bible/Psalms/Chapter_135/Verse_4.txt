@@ -1,0 +1,1 @@
+For the LORD hath chosen Jacob unto himself, and Israel for his peculiar treasure.

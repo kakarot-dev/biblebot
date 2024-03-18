@@ -1,0 +1,1 @@
+Thou knowest that I am not wicked; and there is none that can deliver out of thine hand.

@@ -1,0 +1,1 @@
+And Peter calling to remembrance saith unto him, Master, behold, the fig tree which thou cursedst is withered away.

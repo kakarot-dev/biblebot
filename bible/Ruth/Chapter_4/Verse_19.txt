@@ -1,0 +1,1 @@
+And Hezron begat Ram, and Ram begat Amminadab,

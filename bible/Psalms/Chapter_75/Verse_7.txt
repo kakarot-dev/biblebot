@@ -1,0 +1,1 @@
+But God is the judge: he putteth down one, and setteth up another.

@@ -1,0 +1,1 @@
+And Og the king of Bashan: for his mercy endureth for ever:

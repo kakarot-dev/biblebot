@@ -1,0 +1,1 @@
+For the LORD hath poured out upon you the spirit of deep sleep, and hath closed your eyes: the prophets and your rulers, the seers hath he covered.

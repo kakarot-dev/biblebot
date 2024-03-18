@@ -1,0 +1,1 @@
+And he died in a good old age, full of days, riches, and honour: and Solomon his son reigned in his stead.

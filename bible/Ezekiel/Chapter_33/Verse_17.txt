@@ -1,0 +1,1 @@
+Yet the children of thy people say, The way of the Lord is not equal: but as for them, their way is not equal.

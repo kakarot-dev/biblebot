@@ -1,0 +1,1 @@
+And the standard of the camp of Reuben set forward according to their armies: and over his host was Elizur the son of Shedeur.

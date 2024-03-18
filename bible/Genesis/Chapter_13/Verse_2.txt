@@ -1,0 +1,1 @@
+And Abram was very rich in cattle, in silver, and in gold.

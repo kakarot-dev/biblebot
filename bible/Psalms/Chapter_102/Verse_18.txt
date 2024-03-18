@@ -1,0 +1,1 @@
+This shall be written for the generation to come: and the people which shall be created shall praise the LORD.

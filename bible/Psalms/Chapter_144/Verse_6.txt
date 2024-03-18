@@ -1,0 +1,1 @@
+Cast forth lightning, and scatter them: shoot out thine arrows, and destroy them.

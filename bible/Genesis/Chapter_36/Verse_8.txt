@@ -1,0 +1,1 @@
+Thus dwelt Esau in mount Seir: Esau is Edom.

@@ -1,0 +1,1 @@
+So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that his grief was very great.

@@ -1,0 +1,1 @@
+O magnify the LORD with me, and let us exalt his name together.

@@ -1,0 +1,1 @@
+They envied Moses also in the camp, and Aaron the saint of the LORD.

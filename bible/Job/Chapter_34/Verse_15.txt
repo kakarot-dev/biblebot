@@ -1,0 +1,1 @@
+All flesh shall perish together, and man shall turn again unto dust.

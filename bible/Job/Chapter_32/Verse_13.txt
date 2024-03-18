@@ -1,0 +1,1 @@
+Lest ye should say, We have found out wisdom: God thrusteth him down, not man.

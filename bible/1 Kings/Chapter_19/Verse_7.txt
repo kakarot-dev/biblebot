@@ -1,0 +1,1 @@
+And the angel of the LORD came again the second time, and touched him, and said, Arise and eat; because the journey is too great for thee.

@@ -1,0 +1,1 @@
+But verily God hath heard me; he hath attended to the voice of my prayer.

@@ -1,0 +1,1 @@
+And the children of Reuben built Heshbon, and Elealeh, and Kirjathaim,

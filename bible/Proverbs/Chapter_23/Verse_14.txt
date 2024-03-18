@@ -1,0 +1,1 @@
+Thou shalt beat him with the rod, and shalt deliver his soul from hell.

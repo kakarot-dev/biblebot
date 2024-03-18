@@ -1,0 +1,1 @@
+Then came the soldiers, and brake the legs of the first, and of the other which was crucified with him.

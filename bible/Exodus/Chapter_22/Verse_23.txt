@@ -1,0 +1,1 @@
+If thou afflict them in any wise, and they cry at all unto me, I will surely hear their cry;

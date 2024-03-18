@@ -1,0 +1,1 @@
+And the water ran round about the altar; and he filled the trench also with water.

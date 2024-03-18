@@ -1,0 +1,1 @@
+Incline my heart unto thy testimonies, and not to covetousness.

@@ -1,0 +1,1 @@
+And Zorah, and Aijalon, and Hebron, which are in Judah and in Benjamin fenced cities.

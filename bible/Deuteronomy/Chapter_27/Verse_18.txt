@@ -1,0 +1,1 @@
+Cursed be he that maketh the blind to wander out of the way. And all the people shall say, Amen.

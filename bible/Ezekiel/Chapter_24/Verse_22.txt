@@ -1,0 +1,1 @@
+And ye shall do as I have done: ye shall not cover your lips, nor eat the bread of men.

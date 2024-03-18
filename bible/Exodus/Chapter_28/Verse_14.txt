@@ -1,0 +1,1 @@
+And two chains of pure gold at the ends; of wreathen work shalt thou make them, and fasten the wreathen chains to the ouches.

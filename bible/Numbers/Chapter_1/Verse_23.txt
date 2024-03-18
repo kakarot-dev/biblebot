@@ -1,0 +1,1 @@
+Those that were numbered of them, even of the tribe of Simeon, were fifty and nine thousand and three hundred.

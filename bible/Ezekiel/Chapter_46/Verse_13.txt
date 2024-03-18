@@ -1,0 +1,1 @@
+Thou shalt daily prepare a burnt offering unto the LORD of a lamb of the first year without blemish: thou shalt prepare it every morning.

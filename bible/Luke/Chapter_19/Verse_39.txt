@@ -1,0 +1,1 @@
+And some of the Pharisees from among the multitude said unto him, Master, rebuke thy disciples.

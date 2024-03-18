@@ -1,0 +1,1 @@
+And they gave them Hebron in the land of Judah, and the suburbs thereof round about it.

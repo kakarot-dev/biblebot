@@ -1,0 +1,1 @@
+And ye shall keep my statutes, and do them: I am the LORD which sanctify you.

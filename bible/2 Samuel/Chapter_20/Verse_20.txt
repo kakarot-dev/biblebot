@@ -1,0 +1,1 @@
+And Joab answered and said, Far be it, far be it from me, that I should swallow up or destroy.

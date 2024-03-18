@@ -1,0 +1,1 @@
+And as Peter was coming in, Cornelius met him, and fell down at his feet, and worshipped him.

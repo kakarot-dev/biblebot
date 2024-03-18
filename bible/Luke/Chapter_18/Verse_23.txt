@@ -1,0 +1,1 @@
+And when he heard this, he was very sorrowful: for he was very rich.

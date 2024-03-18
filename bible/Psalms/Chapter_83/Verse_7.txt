@@ -1,0 +1,1 @@
+Gebal, and Ammon, and Amalek; the Philistines with the inhabitants of Tyre;

@@ -1,0 +1,1 @@
+At destruction and famine thou shalt laugh: neither shalt thou be afraid of the beasts of the earth.

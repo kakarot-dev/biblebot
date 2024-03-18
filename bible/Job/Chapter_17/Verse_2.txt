@@ -1,0 +1,1 @@
+Are there not mockers with me? and doth not mine eye continue in their provocation?

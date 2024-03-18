@@ -1,0 +1,1 @@
+Cursed be he that taketh reward to slay an innocent person. And all the people shall say, Amen.

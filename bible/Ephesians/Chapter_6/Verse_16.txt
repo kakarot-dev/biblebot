@@ -1,0 +1,1 @@
+Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.

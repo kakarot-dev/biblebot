@@ -1,0 +1,1 @@
+Will ye accept his person? will ye contend for God?

@@ -1,0 +1,1 @@
+And blasphemed the God of heaven because of their pains and their sores, and repented not of their deeds.

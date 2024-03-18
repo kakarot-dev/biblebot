@@ -1,0 +1,1 @@
+And the king said, Enquire thou whose son the stripling is.

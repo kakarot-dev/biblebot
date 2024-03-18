@@ -1,0 +1,1 @@
+And Lebanon is not sufficient to burn, nor the beasts thereof sufficient for a burnt offering.

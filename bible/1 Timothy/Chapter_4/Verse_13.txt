@@ -1,0 +1,1 @@
+Till I come, give attendance to reading, to exhortation, to doctrine.

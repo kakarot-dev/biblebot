@@ -1,0 +1,1 @@
+And blessed be the most high God, which hath delivered thine enemies into thy hand. And he gave him tithes of all.

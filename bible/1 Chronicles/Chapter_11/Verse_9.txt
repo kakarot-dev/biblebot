@@ -1,0 +1,1 @@
+So David waxed greater and greater: for the LORD of hosts was with him.

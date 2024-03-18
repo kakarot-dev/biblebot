@@ -1,0 +1,1 @@
+And I brake the jaws of the wicked, and plucked the spoil out of his teeth.

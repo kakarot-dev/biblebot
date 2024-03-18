@@ -1,0 +1,1 @@
+And of Naphtali he said, O Naphtali, satisfied with favour, and full with the blessing of the LORD: possess thou the west and the south.

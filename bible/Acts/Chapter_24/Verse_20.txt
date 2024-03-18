@@ -1,0 +1,1 @@
+Or else let these same here say, if they have found any evil doing in me, while I stood before the council,

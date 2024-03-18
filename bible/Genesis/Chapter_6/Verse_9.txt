@@ -1,0 +1,1 @@
+These are the generations of Noah: Noah was a just man and perfect in his generations, and Noah walked with God.

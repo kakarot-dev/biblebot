@@ -1,0 +1,1 @@
+The LORD is great in Zion; and he is high above all the people.

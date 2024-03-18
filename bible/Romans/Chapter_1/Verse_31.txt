@@ -1,0 +1,1 @@
+Without understanding, covenantbreakers, without natural affection, implacable, unmerciful:

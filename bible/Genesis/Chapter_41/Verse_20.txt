@@ -1,0 +1,1 @@
+And the lean and the ill favoured kine did eat up the first seven fat kine:

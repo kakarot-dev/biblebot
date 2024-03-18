@@ -1,0 +1,1 @@
+And Bathsheba said, Well; I will speak for thee unto the king.

@@ -1,0 +1,1 @@
+And confirmed the same unto Jacob for a law, and to Israel for an everlasting covenant:

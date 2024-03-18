@@ -1,0 +1,1 @@
+Now the first lot came forth to Jehoiarib, the second to Jedaiah,

@@ -1,0 +1,1 @@
+And it was revealed unto him by the Holy Ghost, that he should not see death, before he had seen the Lord's Christ.

@@ -1,0 +1,1 @@
+And Daniel continued even unto the first year of king Cyrus.

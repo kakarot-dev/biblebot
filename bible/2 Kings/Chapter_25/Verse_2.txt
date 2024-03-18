@@ -1,0 +1,1 @@
+And the city was besieged unto the eleventh year of king Zedekiah.

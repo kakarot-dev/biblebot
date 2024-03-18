@@ -1,0 +1,1 @@
+Solomon sought therefore to kill Jeroboam. And Jeroboam arose, and fled into Egypt, unto Shishak king of Egypt, and was in Egypt until the death of Solomon.

@@ -1,0 +1,1 @@
+Then laid they their hands on them, and they received the Holy Ghost.

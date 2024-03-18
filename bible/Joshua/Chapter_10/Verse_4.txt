@@ -1,0 +1,1 @@
+Come up unto me, and help me, that we may smite Gibeon: for it hath made peace with Joshua and with the children of Israel.

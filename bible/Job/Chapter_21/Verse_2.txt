@@ -1,0 +1,1 @@
+Hear diligently my speech, and let this be your consolations.

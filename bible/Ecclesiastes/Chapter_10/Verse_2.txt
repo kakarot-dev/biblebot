@@ -1,0 +1,1 @@
+A wise man's heart is at his right hand; but a fool's heart at his left.

@@ -1,0 +1,1 @@
+He smote also all the firstborn in their land, the chief of all their strength.

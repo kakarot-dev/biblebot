@@ -1,0 +1,1 @@
+And made Israel to pass through the midst of it: for his mercy endureth for ever:

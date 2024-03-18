@@ -1,0 +1,1 @@
+The ark of the testimony, and the staves thereof, and the mercy seat,

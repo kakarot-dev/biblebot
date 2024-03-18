@@ -1,0 +1,1 @@
+And Barnabas determined to take with them John, whose surname was Mark.

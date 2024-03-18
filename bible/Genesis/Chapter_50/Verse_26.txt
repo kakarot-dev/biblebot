@@ -1,0 +1,1 @@
+So Joseph died, being an hundred and ten years old: and they embalmed him, and he was put in a coffin in Egypt.

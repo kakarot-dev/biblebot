@@ -1,0 +1,1 @@
+And he gathered unto him the children of Ammon and Amalek, and went and smote Israel, and possessed the city of palm trees.

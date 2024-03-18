@@ -1,0 +1,1 @@
+The gold and the crystal cannot equal it: and the exchange of it shall not be for jewels of fine gold.

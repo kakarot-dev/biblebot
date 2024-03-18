@@ -1,0 +1,1 @@
+And Judas and Silas, being prophets also themselves, exhorted the brethren with many words, and confirmed them.

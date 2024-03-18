@@ -1,0 +1,1 @@
+But if thou fear to go down, go thou with Phurah thy servant down to the host:

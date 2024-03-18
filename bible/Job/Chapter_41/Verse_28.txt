@@ -1,0 +1,1 @@
+The arrow cannot make him flee: slingstones are turned with him into stubble.

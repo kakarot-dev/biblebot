@@ -1,0 +1,1 @@
+If thou therefore wilt worship me, all shall be thine.

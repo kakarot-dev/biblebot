@@ -1,0 +1,1 @@
+Then there arose a reasoning among them, which of them should be greatest.

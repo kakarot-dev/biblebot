@@ -1,0 +1,1 @@
+And Shallum begat Hilkiah, and Hilkiah begat Azariah,

@@ -1,0 +1,1 @@
+And when he had brought them into his house, he set meat before them, and rejoiced, believing in God with all his house.

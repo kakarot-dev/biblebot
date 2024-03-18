@@ -1,0 +1,1 @@
+Which shaketh the earth out of her place, and the pillars thereof tremble.

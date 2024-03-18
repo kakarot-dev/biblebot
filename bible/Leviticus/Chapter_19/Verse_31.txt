@@ -1,0 +1,1 @@
+Regard not them that have familiar spirits, neither seek after wizards, to be defiled by them: I am the LORD your God.

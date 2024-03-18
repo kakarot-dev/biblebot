@@ -1,0 +1,1 @@
+I will make a man more precious than fine gold; even a man than the golden wedge of Ophir.

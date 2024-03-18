@@ -1,0 +1,1 @@
+And he continued there a year and six months, teaching the word of God among them.

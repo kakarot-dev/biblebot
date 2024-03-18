@@ -1,0 +1,1 @@
+As it is written, Jacob have I loved, but Esau have I hated.

@@ -1,0 +1,1 @@
+Which he wrought in Christ, when he raised him from the dead, and set him at his own right hand in the heavenly places,

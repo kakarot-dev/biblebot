@@ -1,0 +1,1 @@
+But every vow of a widow, and of her that is divorced, wherewith they have bound their souls, shall stand against her.

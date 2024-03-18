@@ -1,0 +1,1 @@
+And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.

@@ -1,0 +1,1 @@
+Darts are counted as stubble: he laugheth at the shaking of a spear.

@@ -1,0 +1,1 @@
+(Yea, a sword shall pierce through thy own soul also,) that the thoughts of many hearts may be revealed.

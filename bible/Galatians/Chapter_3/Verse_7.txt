@@ -1,0 +1,1 @@
+Know ye therefore that they which are of faith, the same are the children of Abraham.

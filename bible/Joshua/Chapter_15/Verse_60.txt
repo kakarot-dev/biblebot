@@ -1,0 +1,1 @@
+Kirjathbaal, which is Kirjathjearim, and Rabbah; two cities with their villages:

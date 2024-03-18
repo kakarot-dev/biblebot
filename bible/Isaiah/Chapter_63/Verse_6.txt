@@ -1,0 +1,1 @@
+And I will tread down the people in mine anger, and make them drunk in my fury, and I will bring down their strength to the earth.

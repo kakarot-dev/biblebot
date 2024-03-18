@@ -1,0 +1,1 @@
+Thou art to pass over through Ar, the coast of Moab, this day:

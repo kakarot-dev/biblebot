@@ -1,0 +1,1 @@
+He revealeth the deep and secret things: he knoweth what is in the darkness, and the light dwelleth with him.

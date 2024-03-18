@@ -1,0 +1,1 @@
+im low on resources so im going to trasfer it to books first, then from books to a directory format of /book_name/book/chapter - verse files

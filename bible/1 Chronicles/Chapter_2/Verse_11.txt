@@ -1,0 +1,1 @@
+And Nahshon begat Salma, and Salma begat Boaz,

@@ -1,0 +1,1 @@
+Mine eyes prevent the night watches, that I might meditate in thy word.

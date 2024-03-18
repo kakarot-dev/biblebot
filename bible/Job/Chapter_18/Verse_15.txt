@@ -1,0 +1,1 @@
+It shall dwell in his tabernacle, because it is none of his: brimstone shall be scattered upon his habitation.

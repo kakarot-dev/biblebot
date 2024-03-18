@@ -1,0 +1,1 @@
+And would not suffer that any man should carry any vessel through the temple.

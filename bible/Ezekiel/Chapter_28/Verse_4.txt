@@ -1,0 +1,1 @@
+With thy wisdom and with thine understanding thou hast gotten thee riches, and hast gotten gold and silver into thy treasures:

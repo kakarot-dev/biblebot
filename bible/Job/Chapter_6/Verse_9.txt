@@ -1,0 +1,1 @@
+Even that it would please God to destroy me; that he would let loose his hand, and cut me off!

@@ -1,0 +1,1 @@
+Depart from evil, and do good; and dwell for evermore.

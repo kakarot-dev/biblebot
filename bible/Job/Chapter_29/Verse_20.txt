@@ -1,0 +1,1 @@
+My glory was fresh in me, and my bow was renewed in my hand.

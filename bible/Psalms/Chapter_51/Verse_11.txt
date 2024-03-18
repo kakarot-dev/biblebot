@@ -1,0 +1,1 @@
+Cast me not away from thy presence; and take not thy holy spirit from me.

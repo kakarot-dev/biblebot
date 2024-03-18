@@ -1,0 +1,1 @@
+Thus were both the daughters of Lot with child by their father.

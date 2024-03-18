@@ -1,0 +1,1 @@
+Though I were perfect, yet would I not know my soul: I would despise my life.

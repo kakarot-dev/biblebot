@@ -1,0 +1,1 @@
+And Eltekeh, and Gibbethon, and Baalath,

@@ -1,0 +1,1 @@
+Declare his glory among the heathen, his wonders among all people.

@@ -1,0 +1,1 @@
+And Edom shall be a possession, Seir also shall be a possession for his enemies; and Israel shall do valiantly.

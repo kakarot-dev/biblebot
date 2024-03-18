@@ -1,0 +1,1 @@
+And the rest of the acts of Amaziah, are they not written in the book of the chronicles of the kings of Judah?

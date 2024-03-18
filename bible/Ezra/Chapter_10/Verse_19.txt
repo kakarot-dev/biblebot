@@ -1,0 +1,1 @@
+And they gave their hands that they would put away their wives; and being guilty, they offered a ram of the flock for their trespass.

@@ -1,0 +1,1 @@
+To overthrow their seed also among the nations, and to scatter them in the lands.

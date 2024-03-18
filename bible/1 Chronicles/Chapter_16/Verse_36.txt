@@ -1,0 +1,1 @@
+Blessed be the LORD God of Israel for ever and ever. And all the people said, Amen, and praised the LORD.

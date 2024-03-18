@@ -1,0 +1,1 @@
+I have pursued mine enemies, and destroyed them; and turned not again until I had consumed them.

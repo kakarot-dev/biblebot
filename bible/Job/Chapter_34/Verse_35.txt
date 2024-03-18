@@ -1,0 +1,1 @@
+Job hath spoken without knowledge, and his words were without wisdom.

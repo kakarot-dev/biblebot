@@ -1,0 +1,1 @@
+And Laban gave to Rachel his daughter Bilhah his handmaid to be her maid.

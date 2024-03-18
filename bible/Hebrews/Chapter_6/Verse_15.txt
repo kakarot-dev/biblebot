@@ -1,0 +1,1 @@
+And so, after he had patiently endured, he obtained the promise.

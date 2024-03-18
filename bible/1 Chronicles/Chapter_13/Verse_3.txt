@@ -1,0 +1,1 @@
+And let us bring again the ark of our God to us: for we enquired not at it in the days of Saul.

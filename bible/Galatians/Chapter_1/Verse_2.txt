@@ -1,0 +1,1 @@
+And all the brethren which are with me, unto the churches of Galatia:

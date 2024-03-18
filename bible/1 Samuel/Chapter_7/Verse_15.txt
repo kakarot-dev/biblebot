@@ -1,0 +1,1 @@
+And Samuel judged Israel all the days of his life.

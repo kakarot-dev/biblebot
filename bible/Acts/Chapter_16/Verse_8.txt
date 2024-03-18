@@ -1,0 +1,1 @@
+And they passing by Mysia came down to Troas.

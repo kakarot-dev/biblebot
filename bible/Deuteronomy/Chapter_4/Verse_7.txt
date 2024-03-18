@@ -1,0 +1,1 @@
+For what nation is there so great, who hath God so nigh unto them, as the LORD our God is in all things that we call upon him for?

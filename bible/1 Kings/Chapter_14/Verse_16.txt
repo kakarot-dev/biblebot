@@ -1,0 +1,1 @@
+And he shall give Israel up because of the sins of Jeroboam, who did sin, and who made Israel to sin.

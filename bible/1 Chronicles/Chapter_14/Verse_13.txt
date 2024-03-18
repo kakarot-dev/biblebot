@@ -1,0 +1,1 @@
+And the Philistines yet again spread themselves abroad in the valley.

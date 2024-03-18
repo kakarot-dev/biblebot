@@ -1,0 +1,1 @@
+Then said the LORD unto me, Thou hast well seen: for I will hasten my word to perform it.

@@ -1,0 +1,1 @@
+Bless them which persecute you: bless, and curse not.

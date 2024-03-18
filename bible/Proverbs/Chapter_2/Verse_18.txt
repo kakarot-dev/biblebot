@@ -1,0 +1,1 @@
+For her house inclineth unto death, and her paths unto the dead.

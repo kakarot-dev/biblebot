@@ -1,0 +1,1 @@
+And the ark of God remained with the family of Obededom in his house three months. And the LORD blessed the house of Obededom, and all that he had.

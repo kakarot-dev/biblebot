@@ -1,0 +1,1 @@
+He left Judaea, and departed again into Galilee.

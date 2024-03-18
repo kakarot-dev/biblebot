@@ -1,0 +1,1 @@
+Their heart is divided; now shall they be found faulty: he shall break down their altars, he shall spoil their images.

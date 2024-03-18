@@ -1,0 +1,1 @@
+And it came to pass the selfsame day, that the LORD did bring the children of Israel out of the land of Egypt by their armies.

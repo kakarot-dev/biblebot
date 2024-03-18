@@ -1,0 +1,1 @@
+A man that is an heretick after the first and second admonition reject;

@@ -1,0 +1,1 @@
+In the days of Pekah king of Israel came Tiglathpileser king of Assyria, and took Ijon, and Abelbethmaachah, and Janoah, and Kedesh, and Hazor, and Gilead, and Galilee, all the land of Naphtali, and carried them captive to Assyria.

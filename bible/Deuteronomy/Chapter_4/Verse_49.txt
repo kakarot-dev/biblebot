@@ -1,0 +1,1 @@
+And all the plain on this side Jordan eastward, even unto the sea of the plain, under the springs of Pisgah.

@@ -1,0 +1,1 @@
+Now Elihu had waited till Job had spoken, because they were elder than he.

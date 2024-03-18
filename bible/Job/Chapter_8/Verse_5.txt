@@ -1,0 +1,1 @@
+If thou wouldest seek unto God betimes, and make thy supplication to the Almighty;

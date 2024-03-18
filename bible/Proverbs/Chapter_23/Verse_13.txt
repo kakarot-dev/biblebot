@@ -1,0 +1,1 @@
+Withhold not correction from the child: for if thou beatest him with the rod, he shall not die.

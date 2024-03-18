@@ -1,0 +1,1 @@
+And of the Danites expert in war twenty and eight thousand and six hundred.

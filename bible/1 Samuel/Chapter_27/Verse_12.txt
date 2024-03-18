@@ -1,0 +1,1 @@
+And Achish believed David, saying, He hath made his people Israel utterly to abhor him; therefore he shall be my servant for ever.

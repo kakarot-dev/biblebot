@@ -1,0 +1,1 @@
+He putteth forth his hand upon the rock; he overturneth the mountains by the roots.

@@ -1,0 +1,1 @@
+Nevertheless, to avoid fornication, let every man have his own wife, and let every woman have her own husband.

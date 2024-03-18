@@ -1,0 +1,1 @@
+Whose hope shall be cut off, and whose trust shall be a spider's web.

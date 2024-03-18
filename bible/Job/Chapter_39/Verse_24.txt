@@ -1,0 +1,1 @@
+He swalloweth the ground with fierceness and rage: neither believeth he that it is the sound of the trumpet.

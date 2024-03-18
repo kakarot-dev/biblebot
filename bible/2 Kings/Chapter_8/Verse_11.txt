@@ -1,0 +1,1 @@
+And he settled his countenance stedfastly, until he was ashamed: and the man of God wept.

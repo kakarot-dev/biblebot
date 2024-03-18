@@ -1,0 +1,1 @@
+As God overthrew Sodom and Gomorrah and the neighbour cities thereof, saith the LORD; so shall no man abide there, neither shall any son of man dwell therein.

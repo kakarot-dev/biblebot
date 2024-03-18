@@ -1,0 +1,1 @@
+And many that believed came, and confessed, and shewed their deeds.

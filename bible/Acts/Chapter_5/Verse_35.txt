@@ -1,0 +1,1 @@
+And said unto them, Ye men of Israel, take heed to yourselves what ye intend to do as touching these men.

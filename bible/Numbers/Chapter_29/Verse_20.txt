@@ -1,0 +1,1 @@
+And on the third day eleven bullocks, two rams, fourteen lambs of the first year without blemish;

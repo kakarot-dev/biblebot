@@ -1,0 +1,1 @@
+The word which God sent unto the children of Israel, preaching peace by Jesus Christ: (he is Lord of all:)

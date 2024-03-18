@@ -1,0 +1,1 @@
+And as he went, they spread their clothes in the way.

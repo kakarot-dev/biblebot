@@ -1,0 +1,1 @@
+Even the country which the LORD smote before the congregation of Israel, is a land for cattle, and thy servants have cattle:

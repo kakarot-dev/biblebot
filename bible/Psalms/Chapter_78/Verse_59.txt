@@ -1,0 +1,1 @@
+When God heard this, he was wroth, and greatly abhorred Israel:

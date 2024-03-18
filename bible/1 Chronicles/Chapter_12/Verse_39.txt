@@ -1,0 +1,1 @@
+And there they were with David three days, eating and drinking: for their brethren had prepared for them.

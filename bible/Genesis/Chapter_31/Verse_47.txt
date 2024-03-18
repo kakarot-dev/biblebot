@@ -1,0 +1,1 @@
+And Laban called it Jegarsahadutha: but Jacob called it Galeed.

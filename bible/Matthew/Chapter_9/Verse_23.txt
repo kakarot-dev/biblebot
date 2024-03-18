@@ -1,0 +1,1 @@
+And when Jesus came into the ruler's house, and saw the minstrels and the people making a noise,

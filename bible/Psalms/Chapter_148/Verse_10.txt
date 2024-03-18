@@ -1,0 +1,1 @@
+Beasts, and all cattle; creeping things, and flying fowl:

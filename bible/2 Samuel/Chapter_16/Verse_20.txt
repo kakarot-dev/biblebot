@@ -1,0 +1,1 @@
+Then said Absalom to Ahithophel, Give counsel among you what we shall do.

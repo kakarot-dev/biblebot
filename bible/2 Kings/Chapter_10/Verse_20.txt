@@ -1,0 +1,1 @@
+And Jehu said, Proclaim a solemn assembly for Baal. And they proclaimed it.

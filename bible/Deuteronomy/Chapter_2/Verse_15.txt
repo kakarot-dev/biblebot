@@ -1,0 +1,1 @@
+For indeed the hand of the LORD was against them, to destroy them from among the host, until they were consumed.

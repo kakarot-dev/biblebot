@@ -1,0 +1,1 @@
+He cropped off the top of his young twigs, and carried it into a land of traffick; he set it in a city of merchants.

@@ -1,0 +1,1 @@
+Whose end is destruction, whose God is their belly, and whose glory is in their shame, who mind earthly things.)

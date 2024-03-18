@@ -1,0 +1,1 @@
+And thou sayest, How doth God know? can he judge through the dark cloud?

@@ -1,0 +1,1 @@
+And he commanded the multitude to sit down on the ground.

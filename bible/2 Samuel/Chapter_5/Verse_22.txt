@@ -1,0 +1,1 @@
+And the Philistines came up yet again, and spread themselves in the valley of Rephaim.

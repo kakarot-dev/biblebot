@@ -1,0 +1,1 @@
+He that sacrificeth unto any god, save unto the LORD only, he shall be utterly destroyed.

@@ -1,0 +1,1 @@
+He taketh away the heart of the chief of the people of the earth, and causeth them to wander in a wilderness where there is no way.

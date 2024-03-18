@@ -1,0 +1,1 @@
+And for a drink offering thou shalt offer the third part of an hin of wine, for a sweet savour unto the LORD.

@@ -1,0 +1,1 @@
+Hear ye, and give ear; be not proud: for the LORD hath spoken.

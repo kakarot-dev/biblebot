@@ -1,0 +1,1 @@
+The LORD shall preserve thee from all evil: he shall preserve thy soul.

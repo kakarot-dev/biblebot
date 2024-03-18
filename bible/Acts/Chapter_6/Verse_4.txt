@@ -1,0 +1,1 @@
+But we will give ourselves continually to prayer, and to the ministry of the word.

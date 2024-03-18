@@ -1,0 +1,1 @@
+And say to the land of Israel, Thus saith the LORD; Behold, I am against thee, and will draw forth my sword out of his sheath, and will cut off from thee the righteous and the wicked.

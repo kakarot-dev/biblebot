@@ -1,0 +1,1 @@
+If the LORD delight in us, then he will bring us into this land, and give it us; a land which floweth with milk and honey.

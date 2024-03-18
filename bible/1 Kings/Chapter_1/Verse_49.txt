@@ -1,0 +1,1 @@
+And all the guests that were with Adonijah were afraid, and rose up, and went every man his way.

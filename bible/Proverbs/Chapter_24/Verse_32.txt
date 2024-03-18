@@ -1,0 +1,1 @@
+Then I saw, and considered it well: I looked upon it, and received instruction.

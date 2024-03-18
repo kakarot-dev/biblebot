@@ -1,0 +1,1 @@
+And because he was of the same craft, he abode with them, and wrought: for by their occupation they were tentmakers.

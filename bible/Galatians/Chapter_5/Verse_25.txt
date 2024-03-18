@@ -1,0 +1,1 @@
+If we live in the Spirit, let us also walk in the Spirit.

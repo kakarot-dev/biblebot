@@ -1,0 +1,1 @@
+And labour, working with our own hands: being reviled, we bless; being persecuted, we suffer it:

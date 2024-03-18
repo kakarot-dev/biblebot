@@ -1,0 +1,1 @@
+Nevertheless let every one of you in particular so love his wife even as himself; and the wife see that she reverence her husband.

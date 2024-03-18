@@ -1,0 +1,1 @@
+Before the LORD; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.

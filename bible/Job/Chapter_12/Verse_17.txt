@@ -1,0 +1,1 @@
+He leadeth counsellors away spoiled, and maketh the judges fools.

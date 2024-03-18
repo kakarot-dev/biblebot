@@ -1,0 +1,1 @@
+Moreover I will make thee waste, and a reproach among the nations that are round about thee, in the sight of all that pass by.

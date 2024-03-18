@@ -1,0 +1,1 @@
+And what saddle soever he rideth upon that hath the issue shall be unclean.

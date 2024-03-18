@@ -1,0 +1,1 @@
+And he came to Ephesus, and left them there: but he himself entered into the synagogue, and reasoned with the Jews.

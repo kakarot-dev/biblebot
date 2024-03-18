@@ -1,0 +1,1 @@
+And he cut the ram into pieces; and Moses burnt the head, and the pieces, and the fat.

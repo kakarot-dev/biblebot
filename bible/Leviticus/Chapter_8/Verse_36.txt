@@ -1,0 +1,1 @@
+So Aaron and his sons did all things which the LORD commanded by the hand of Moses.

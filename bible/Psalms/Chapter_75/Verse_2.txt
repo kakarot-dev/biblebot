@@ -1,0 +1,1 @@
+When I shall receive the congregation I will judge uprightly.

@@ -1,0 +1,1 @@
+And the soldiers' counsel was to kill the prisoners, lest any of them should swim out, and escape.

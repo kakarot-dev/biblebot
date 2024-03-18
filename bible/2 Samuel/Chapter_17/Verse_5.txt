@@ -1,0 +1,1 @@
+Then said Absalom, Call now Hushai the Archite also, and let us hear likewise what he saith.

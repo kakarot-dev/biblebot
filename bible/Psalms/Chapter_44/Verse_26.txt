@@ -1,0 +1,1 @@
+Arise for our help, and redeem us for thy mercies' sake.

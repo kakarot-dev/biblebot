@@ -1,0 +1,1 @@
+I have longed for thy salvation, O LORD; and thy law is my delight.

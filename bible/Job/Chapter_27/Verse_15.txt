@@ -1,0 +1,1 @@
+Those that remain of him shall be buried in death: and his widows shall not weep.

@@ -1,0 +1,1 @@
+And Noah begat three sons, Shem, Ham, and Japheth.

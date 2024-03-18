@@ -1,0 +1,1 @@
+And the saying pleased Absalom well, and all the elders of Israel.

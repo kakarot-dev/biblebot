@@ -1,0 +1,1 @@
+Howbeit he would not hearken unto her voice: but, being stronger than she, forced her, and lay with her.

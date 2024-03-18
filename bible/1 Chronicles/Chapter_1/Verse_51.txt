@@ -1,0 +1,1 @@
+Hadad died also. And the dukes of Edom were; duke Timnah, duke Aliah, duke Jetheth,

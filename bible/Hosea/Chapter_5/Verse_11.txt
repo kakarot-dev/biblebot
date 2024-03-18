@@ -1,0 +1,1 @@
+Ephraim is oppressed and broken in judgment, because he willingly walked after the commandment.

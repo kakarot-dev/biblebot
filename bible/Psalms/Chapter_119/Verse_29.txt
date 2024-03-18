@@ -1,0 +1,1 @@
+Remove from me the way of lying: and grant me thy law graciously.

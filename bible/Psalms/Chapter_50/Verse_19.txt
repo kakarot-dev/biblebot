@@ -1,0 +1,1 @@
+Thou givest thy mouth to evil, and thy tongue frameth deceit.

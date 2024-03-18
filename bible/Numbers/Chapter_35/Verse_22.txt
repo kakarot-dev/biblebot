@@ -1,0 +1,1 @@
+But if he thrust him suddenly without enmity, or have cast upon him any thing without laying of wait,

@@ -1,0 +1,1 @@
+And Kedesh, and Edrei, and Enhazor,

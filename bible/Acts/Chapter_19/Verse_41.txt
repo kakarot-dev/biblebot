@@ -1,0 +1,1 @@
+And when he had thus spoken, he dismissed the assembly.

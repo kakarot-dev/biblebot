@@ -1,0 +1,1 @@
+Beloved, if our heart condemn us not, then have we confidence toward God.

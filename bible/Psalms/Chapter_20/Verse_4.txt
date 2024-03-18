@@ -1,0 +1,1 @@
+Grant thee according to thine own heart, and fulfil all thy counsel.

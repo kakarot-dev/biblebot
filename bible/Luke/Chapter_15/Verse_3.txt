@@ -1,0 +1,1 @@
+And he spake this parable unto them, saying,

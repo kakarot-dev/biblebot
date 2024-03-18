@@ -1,0 +1,1 @@
+And in all the land were no women found so fair as the daughters of Job: and their father gave them inheritance among their brethren.

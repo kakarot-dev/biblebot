@@ -1,0 +1,1 @@
+And of the half tribe of Manasseh eighteen thousand, which were expressed by name, to come and make David king.

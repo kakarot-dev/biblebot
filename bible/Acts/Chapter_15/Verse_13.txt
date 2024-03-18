@@ -1,0 +1,1 @@
+And after they had held their peace, James answered, saying, Men and brethren, hearken unto me:

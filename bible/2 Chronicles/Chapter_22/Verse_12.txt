@@ -1,0 +1,1 @@
+And he was with them hid in the house of God six years: and Athaliah reigned over the land.

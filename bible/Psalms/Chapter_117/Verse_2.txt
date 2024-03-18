@@ -1,0 +1,1 @@
+For his merciful kindness is great toward us: and the truth of the LORD endureth for ever. Praise ye the LORD.

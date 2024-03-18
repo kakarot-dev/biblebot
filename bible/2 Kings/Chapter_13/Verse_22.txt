@@ -1,0 +1,1 @@
+But Hazael king of Syria oppressed Israel all the days of Jehoahaz.

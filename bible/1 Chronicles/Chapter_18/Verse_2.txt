@@ -1,0 +1,1 @@
+And he smote Moab; and the Moabites became David's servants, and brought gifts.

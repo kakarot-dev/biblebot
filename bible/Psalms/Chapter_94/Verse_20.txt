@@ -1,0 +1,1 @@
+Shall the throne of iniquity have fellowship with thee, which frameth mischief by a law?

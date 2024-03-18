@@ -1,0 +1,1 @@
+Her husband is known in the gates, when he sitteth among the elders of the land.

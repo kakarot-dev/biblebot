@@ -1,0 +1,1 @@
+Because I delivered the poor that cried, and the fatherless, and him that had none to help him.

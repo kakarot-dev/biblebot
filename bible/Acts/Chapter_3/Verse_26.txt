@@ -1,0 +1,1 @@
+Unto you first God, having raised up his Son Jesus, sent him to bless you, in turning away every one of you from his iniquities.

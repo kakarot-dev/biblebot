@@ -1,0 +1,1 @@
+The seventh to Hakkoz, the eighth to Abijah,

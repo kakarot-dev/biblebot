@@ -1,0 +1,1 @@
+Art thou greater than our father Jacob, which gave us the well, and drank thereof himself, and his children, and his cattle?

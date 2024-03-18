@@ -1,0 +1,1 @@
+Exalt her, and she shall promote thee: she shall bring thee to honour, when thou dost embrace her.

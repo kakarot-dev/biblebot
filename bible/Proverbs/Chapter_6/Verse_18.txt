@@ -1,0 +1,1 @@
+An heart that deviseth wicked imaginations, feet that be swift in running to mischief,

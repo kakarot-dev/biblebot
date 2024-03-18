@@ -1,0 +1,1 @@
+The last enemy that shall be destroyed is death.

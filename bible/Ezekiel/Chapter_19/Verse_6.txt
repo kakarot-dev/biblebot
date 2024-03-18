@@ -1,0 +1,1 @@
+And he went up and down among the lions, he became a young lion, and learned to catch the prey, and devoured men.

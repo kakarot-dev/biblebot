@@ -1,0 +1,1 @@
+The horse is prepared against the day of battle: but safety is of the LORD.

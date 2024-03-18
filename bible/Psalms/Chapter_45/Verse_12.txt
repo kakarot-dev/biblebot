@@ -1,0 +1,1 @@
+And the daughter of Tyre shall be there with a gift; even the rich among the people shall intreat thy favour.

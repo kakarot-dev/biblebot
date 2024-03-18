@@ -1,0 +1,1 @@
+For if that which is done away was glorious, much more that which remaineth is glorious.

@@ -1,0 +1,1 @@
+All my inward friends abhorred me: and they whom I loved are turned against me.

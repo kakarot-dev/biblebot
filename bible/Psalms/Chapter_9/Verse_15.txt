@@ -1,0 +1,1 @@
+The heathen are sunk down in the pit that they made: in the net which they hid is their own foot taken.

@@ -1,0 +1,1 @@
+They drank wine, and praised the gods of gold, and of silver, of brass, of iron, of wood, and of stone.

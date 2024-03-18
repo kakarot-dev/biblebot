@@ -1,0 +1,1 @@
+And Arphaxad begat Shelah, and Shelah begat Eber.

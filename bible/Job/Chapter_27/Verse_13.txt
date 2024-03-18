@@ -1,0 +1,1 @@
+This is the portion of a wicked man with God, and the heritage of oppressors, which they shall receive of the Almighty.

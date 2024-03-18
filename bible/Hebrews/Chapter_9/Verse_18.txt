@@ -1,0 +1,1 @@
+Whereupon neither the first testament was dedicated without blood.

@@ -1,0 +1,1 @@
+And the children of Israel gave unto the Levites out of their inheritance, at the commandment of the LORD, these cities and their suburbs.

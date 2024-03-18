@@ -1,0 +1,1 @@
+And Samuel came to Saul: and Saul said unto him, Blessed be thou of the LORD: I have performed the commandment of the LORD.

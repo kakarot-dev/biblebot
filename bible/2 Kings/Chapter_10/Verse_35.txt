@@ -1,0 +1,1 @@
+And Jehu slept with his fathers: and they buried him in Samaria. And Jehoahaz his son reigned in his stead.

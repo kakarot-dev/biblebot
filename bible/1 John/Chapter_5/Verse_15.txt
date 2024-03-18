@@ -1,0 +1,1 @@
+And if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him.

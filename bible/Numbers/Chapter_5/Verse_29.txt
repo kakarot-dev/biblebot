@@ -1,0 +1,1 @@
+This is the law of jealousies, when a wife goeth aside to another instead of her husband, and is defiled;

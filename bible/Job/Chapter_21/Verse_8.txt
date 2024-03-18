@@ -1,0 +1,1 @@
+Their seed is established in their sight with them, and their offspring before their eyes.

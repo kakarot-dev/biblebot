@@ -1,0 +1,1 @@
+And upon Kerioth, and upon Bozrah, and upon all the cities of the land of Moab, far or near.

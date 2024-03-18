@@ -1,0 +1,1 @@
+Who have said, With our tongue will we prevail; our lips are our own: who is lord over us?

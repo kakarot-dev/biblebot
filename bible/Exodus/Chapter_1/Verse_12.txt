@@ -1,0 +1,1 @@
+But the more they afflicted them, the more they multiplied and grew. And they were grieved because of the children of Israel.

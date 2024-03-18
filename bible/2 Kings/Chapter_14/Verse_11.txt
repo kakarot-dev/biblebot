@@ -1,0 +1,1 @@
+But Amaziah would not hear. Therefore Jehoash king of Israel went up; and he and Amaziah king of Judah looked one another in the face at Bethshemesh, which belongeth to Judah.

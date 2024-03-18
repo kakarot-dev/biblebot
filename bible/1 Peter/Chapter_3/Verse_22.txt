@@ -1,0 +1,1 @@
+Who is gone into heaven, and is on the right hand of God; angels and authorities and powers being made subject unto him.

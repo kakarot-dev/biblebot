@@ -1,0 +1,1 @@
+And he conferred with Joab the son of Zeruiah, and with Abiathar the priest: and they following Adonijah helped him.

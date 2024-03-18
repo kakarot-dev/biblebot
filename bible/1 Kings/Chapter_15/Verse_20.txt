@@ -1,0 +1,1 @@
+So Benhadad hearkened unto king Asa, and sent the captains of the hosts which he had against the cities of Israel, and smote Ijon, and Dan, and Abelbethmaachah, and all Cinneroth, with all the land of Naphtali.

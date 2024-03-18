@@ -1,0 +1,1 @@
+For thou hast taken a pledge from thy brother for nought, and stripped the naked of their clothing.

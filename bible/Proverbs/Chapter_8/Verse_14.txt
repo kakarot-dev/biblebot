@@ -1,0 +1,1 @@
+Counsel is mine, and sound wisdom: I am understanding; I have strength.

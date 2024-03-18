@@ -1,0 +1,1 @@
+And the same man had four daughters, virgins, which did prophesy.

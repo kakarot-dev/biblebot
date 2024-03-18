@@ -1,0 +1,1 @@
+Persecuted, but not forsaken; cast down, but not destroyed;

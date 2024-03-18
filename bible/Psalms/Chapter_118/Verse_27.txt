@@ -1,0 +1,1 @@
+God is the LORD, which hath shewed us light: bind the sacrifice with cords, even unto the horns of the altar.

@@ -1,0 +1,1 @@
+So these nations feared the LORD, and served their graven images, both their children, and their children's children: as did their fathers, so do they unto this day.

@@ -1,0 +1,1 @@
+And Ahithophel was the king's counsellor: and Hushai the Archite was the king's companion:

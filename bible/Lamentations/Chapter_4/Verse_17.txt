@@ -1,0 +1,1 @@
+As for us, our eyes as yet failed for our vain help: in our watching we have watched for a nation that could not save us.

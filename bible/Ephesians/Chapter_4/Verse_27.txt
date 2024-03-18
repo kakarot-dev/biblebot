@@ -1,0 +1,1 @@
+Neither give place to the devil.

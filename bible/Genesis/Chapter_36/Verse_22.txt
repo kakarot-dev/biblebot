@@ -1,0 +1,1 @@
+And the children of Lotan were Hori and Hemam; and Lotan's sister was Timna.

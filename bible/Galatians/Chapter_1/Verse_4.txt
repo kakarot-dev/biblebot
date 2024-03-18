@@ -1,0 +1,1 @@
+Who gave himself for our sins, that he might deliver us from this present evil world, according to the will of God and our Father:

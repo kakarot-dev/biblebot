@@ -1,0 +1,1 @@
+He shall reward evil unto mine enemies: cut them off in thy truth.

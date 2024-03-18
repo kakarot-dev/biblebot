@@ -1,0 +1,1 @@
+For the terrible one is brought to nought, and the scorner is consumed, and all that watch for iniquity are cut off:

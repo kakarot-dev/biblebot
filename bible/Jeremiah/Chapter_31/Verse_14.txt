@@ -1,0 +1,1 @@
+And I will satiate the soul of the priests with fatness, and my people shall be satisfied with my goodness, saith the LORD.

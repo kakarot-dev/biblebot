@@ -1,0 +1,1 @@
+Greet one another with an holy kiss.

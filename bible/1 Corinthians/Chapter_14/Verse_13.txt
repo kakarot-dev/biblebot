@@ -1,0 +1,1 @@
+Wherefore let him that speaketh in an unknown tongue pray that he may interpret.

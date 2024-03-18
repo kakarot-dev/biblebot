@@ -1,0 +1,1 @@
+Now the God of peace be with you all. Amen.

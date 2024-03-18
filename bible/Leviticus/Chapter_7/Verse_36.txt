@@ -1,0 +1,1 @@
+Which the LORD commanded to be given them of the children of Israel, in the day that he anointed them, by a statute for ever throughout their generations.

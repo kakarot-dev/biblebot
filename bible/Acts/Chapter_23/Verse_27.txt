@@ -1,0 +1,1 @@
+This man was taken of the Jews, and should have been killed of them: then came I with an army, and rescued him, having understood that he was a Roman.

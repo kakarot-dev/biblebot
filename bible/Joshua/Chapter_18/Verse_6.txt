@@ -1,0 +1,1 @@
+Ye shall therefore describe the land into seven parts, and bring the description hither to me, that I may cast lots for you here before the LORD our God.

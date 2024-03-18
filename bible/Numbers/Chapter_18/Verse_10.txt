@@ -1,0 +1,1 @@
+In the most holy place shalt thou eat it; every male shall eat it: it shall be holy unto thee.

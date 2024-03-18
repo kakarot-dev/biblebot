@@ -1,0 +1,1 @@
+And Maarath, and Bethanoth, and Eltekon; six cities with their villages:

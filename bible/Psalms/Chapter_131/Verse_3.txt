@@ -1,0 +1,1 @@
+Let Israel hope in the LORD from henceforth and for ever.

@@ -1,0 +1,1 @@
+I will say of the LORD, He is my refuge and my fortress: my God; in him will I trust.

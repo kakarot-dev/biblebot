@@ -1,0 +1,1 @@
+And the LORD said unto him, What is that in thine hand? And he said, A rod.

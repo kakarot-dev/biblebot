@@ -1,0 +1,1 @@
+Jarmuth, and Adullam, Socoh, and Azekah,

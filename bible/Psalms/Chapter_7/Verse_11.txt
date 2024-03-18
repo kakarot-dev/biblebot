@@ -1,0 +1,1 @@
+God judgeth the righteous, and God is angry with the wicked every day.

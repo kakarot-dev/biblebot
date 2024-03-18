@@ -1,0 +1,1 @@
+Again, they are minished and brought low through oppression, affliction, and sorrow.

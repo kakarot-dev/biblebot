@@ -1,0 +1,1 @@
+And she gave him Bilhah her handmaid to wife: and Jacob went in unto her.

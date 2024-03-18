@@ -1,0 +1,1 @@
+And her daughters which are in the field shall be slain by the sword; and they shall know that I am the LORD.

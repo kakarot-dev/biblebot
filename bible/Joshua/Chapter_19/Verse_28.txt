@@ -1,0 +1,1 @@
+And Hebron, and Rehob, and Hammon, and Kanah, even unto great Zidon;

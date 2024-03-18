@@ -1,0 +1,1 @@
+Whosoever shall make like unto that, to smell thereto, shall even be cut off from his people.

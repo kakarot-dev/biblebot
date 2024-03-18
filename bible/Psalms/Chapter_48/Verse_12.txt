@@ -1,0 +1,1 @@
+Walk about Zion, and go round about her: tell the towers thereof.

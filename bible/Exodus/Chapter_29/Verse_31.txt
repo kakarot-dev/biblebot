@@ -1,0 +1,1 @@
+And thou shalt take the ram of the consecration, and seethe his flesh in the holy place.

@@ -1,0 +1,1 @@
+When I looked for good, then evil came unto me: and when I waited for light, there came darkness.

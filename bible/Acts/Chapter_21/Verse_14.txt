@@ -1,0 +1,1 @@
+And when he would not be persuaded, we ceased, saying, The will of the Lord be done.

@@ -1,0 +1,1 @@
+The hope of the righteous shall be gladness: but the expectation of the wicked shall perish.

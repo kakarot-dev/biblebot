@@ -1,0 +1,1 @@
+So that his life abhorreth bread, and his soul dainty meat.

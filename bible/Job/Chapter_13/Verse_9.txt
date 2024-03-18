@@ -1,0 +1,1 @@
+Is it good that he should search you out? or as one man mocketh another, do ye so mock him?

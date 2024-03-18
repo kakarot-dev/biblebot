@@ -1,0 +1,1 @@
+O love the LORD, all ye his saints: for the LORD preserveth the faithful, and plentifully rewardeth the proud doer.

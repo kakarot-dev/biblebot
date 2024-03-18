@@ -1,0 +1,1 @@
+I chose out their way, and sat chief, and dwelt as a king in the army, as one that comforteth the mourners.

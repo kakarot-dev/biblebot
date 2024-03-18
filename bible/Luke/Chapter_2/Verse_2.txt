@@ -1,0 +1,1 @@
+(And this taxing was first made when Cyrenius was governor of Syria.)

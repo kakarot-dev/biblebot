@@ -1,0 +1,1 @@
+And the men of Babylon made Succothbenoth, and the men of Cuth made Nergal, and the men of Hamath made Ashima,

@@ -1,0 +1,1 @@
+But he that is joined unto the Lord is one spirit.

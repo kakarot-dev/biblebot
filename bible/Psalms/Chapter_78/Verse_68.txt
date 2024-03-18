@@ -1,0 +1,1 @@
+But chose the tribe of Judah, the mount Zion which he loved.

@@ -1,0 +1,1 @@
+When John had first preached before his coming the baptism of repentance to all the people of Israel.

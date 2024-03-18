@@ -1,0 +1,1 @@
+Because they provoked his spirit, so that he spake unadvisedly with his lips.

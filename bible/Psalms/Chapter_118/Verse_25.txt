@@ -1,0 +1,1 @@
+Save now, I beseech thee, O LORD: O LORD, I beseech thee, send now prosperity.

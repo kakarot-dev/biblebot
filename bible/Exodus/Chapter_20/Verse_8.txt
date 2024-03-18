@@ -1,0 +1,1 @@
+Remember the sabbath day, to keep it holy.

@@ -1,0 +1,1 @@
+Hell is naked before him, and destruction hath no covering.

@@ -1,0 +1,1 @@
+And in the valley, Eshtaol, and Zoreah, and Ashnah,

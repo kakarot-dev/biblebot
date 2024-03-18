@@ -1,0 +1,1 @@
+Also Judah took Gaza with the coast thereof, and Askelon with the coast thereof, and Ekron with the coast thereof.

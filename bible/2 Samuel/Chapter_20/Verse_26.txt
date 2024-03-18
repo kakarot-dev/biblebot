@@ -1,0 +1,1 @@
+And Ira also the Jairite was a chief ruler about David.

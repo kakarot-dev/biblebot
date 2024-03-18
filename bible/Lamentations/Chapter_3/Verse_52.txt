@@ -1,0 +1,1 @@
+Mine enemies chased me sore, like a bird, without cause.

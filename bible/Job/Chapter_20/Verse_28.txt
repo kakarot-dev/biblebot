@@ -1,0 +1,1 @@
+The increase of his house shall depart, and his goods shall flow away in the day of his wrath.

@@ -1,0 +1,1 @@
+And it came to pass, that while he executed the priest's office before God in the order of his course,

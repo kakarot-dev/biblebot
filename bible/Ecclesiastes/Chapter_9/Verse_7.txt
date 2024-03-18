@@ -1,0 +1,1 @@
+Go thy way, eat thy bread with joy, and drink thy wine with a merry heart; for God now accepteth thy works.

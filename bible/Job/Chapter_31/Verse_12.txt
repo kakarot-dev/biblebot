@@ -1,0 +1,1 @@
+For it is a fire that consumeth to destruction, and would root out all mine increase.

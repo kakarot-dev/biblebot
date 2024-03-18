@@ -1,0 +1,1 @@
+For even that which was made glorious had no glory in this respect, by reason of the glory that excelleth.

@@ -1,0 +1,1 @@
+And if a man have committed a sin worthy of death, and he be to be put to death, and thou hang him on a tree:

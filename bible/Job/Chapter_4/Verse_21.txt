@@ -1,0 +1,1 @@
+Doth not their excellency which is in them go away? they die, even without wisdom.

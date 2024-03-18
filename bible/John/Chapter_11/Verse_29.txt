@@ -1,0 +1,1 @@
+As soon as she heard that, she arose quickly, and came unto him.

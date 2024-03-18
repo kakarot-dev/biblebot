@@ -1,0 +1,1 @@
+And of some have compassion, making a difference:

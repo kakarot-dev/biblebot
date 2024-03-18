@@ -1,0 +1,1 @@
+Three shepherds also I cut off in one month; and my soul lothed them, and their soul also abhorred me.

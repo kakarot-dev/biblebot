@@ -1,0 +1,1 @@
+Even as the testimony of Christ was confirmed in you:

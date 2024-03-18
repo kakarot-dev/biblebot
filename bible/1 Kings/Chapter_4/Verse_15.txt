@@ -1,0 +1,1 @@
+Ahimaaz was in Naphtali; he also took Basmath the daughter of Solomon to wife:

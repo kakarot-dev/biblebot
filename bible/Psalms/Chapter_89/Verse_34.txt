@@ -1,0 +1,1 @@
+My covenant will I not break, nor alter the thing that is gone out of my lips.

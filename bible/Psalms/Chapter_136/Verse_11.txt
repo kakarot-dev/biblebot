@@ -1,0 +1,1 @@
+And brought out Israel from among them: for his mercy endureth for ever:

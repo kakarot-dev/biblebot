@@ -1,0 +1,1 @@
+A dreadful sound is in his ears: in prosperity the destroyer shall come upon him.

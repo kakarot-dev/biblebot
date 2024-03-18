@@ -1,0 +1,1 @@
+And the king turned his face, and blessed the whole congregation of Israel: and all the congregation of Israel stood.

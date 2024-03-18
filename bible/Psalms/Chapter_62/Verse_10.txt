@@ -1,0 +1,1 @@
+Trust not in oppression, and become not vain in robbery: if riches increase, set not your heart upon them.

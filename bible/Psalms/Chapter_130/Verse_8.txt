@@ -1,0 +1,1 @@
+And he shall redeem Israel from all his iniquities.

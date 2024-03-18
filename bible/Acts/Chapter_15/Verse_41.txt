@@ -1,0 +1,1 @@
+And he went through Syria and Cilicia, confirming the churches.

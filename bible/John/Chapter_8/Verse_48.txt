@@ -1,0 +1,1 @@
+Then answered the Jews, and said unto him, Say we not well that thou art a Samaritan, and hast a devil?

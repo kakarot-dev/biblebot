@@ -1,0 +1,1 @@
+When mine enemies are turned back, they shall fall and perish at thy presence.

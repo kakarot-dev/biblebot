@@ -1,0 +1,1 @@
+Then said Boaz unto his servant that was set over the reapers, Whose damsel is this?

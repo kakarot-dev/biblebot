@@ -1,0 +1,1 @@
+When Herod the king had heard these things, he was troubled, and all Jerusalem with him.

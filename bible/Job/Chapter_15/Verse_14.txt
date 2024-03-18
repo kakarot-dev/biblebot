@@ -1,0 +1,1 @@
+What is man, that he should be clean? and he which is born of a woman, that he should be righteous?

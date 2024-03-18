@@ -1,0 +1,1 @@
+Give not thy strength unto women, nor thy ways to that which destroyeth kings.

@@ -1,0 +1,1 @@
+Among the bushes they brayed; under the nettles they were gathered together.

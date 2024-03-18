@@ -1,0 +1,1 @@
+And the soldiers platted a crown of thorns, and put it on his head, and they put on him a purple robe,

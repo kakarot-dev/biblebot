@@ -1,0 +1,1 @@
+And gathered them out of the lands, from the east, and from the west, from the north, and from the south.

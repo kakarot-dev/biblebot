@@ -1,0 +1,1 @@
+A foreigner and an hired servant shall not eat thereof.

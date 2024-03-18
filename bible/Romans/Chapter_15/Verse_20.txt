@@ -1,0 +1,1 @@
+Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man's foundation:

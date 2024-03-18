@@ -1,0 +1,1 @@
+And Hamor and Shechem his son came unto the gate of their city, and communed with the men of their city, saying,

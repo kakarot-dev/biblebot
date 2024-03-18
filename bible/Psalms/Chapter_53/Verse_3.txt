@@ -1,0 +1,1 @@
+Every one of them is gone back: they are altogether become filthy; there is none that doeth good, no, not one.

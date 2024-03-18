@@ -1,0 +1,1 @@
+And immediately his fame spread abroad throughout all the region round about Galilee.

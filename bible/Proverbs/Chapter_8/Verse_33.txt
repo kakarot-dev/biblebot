@@ -1,0 +1,1 @@
+Hear instruction, and be wise, and refuse it not.

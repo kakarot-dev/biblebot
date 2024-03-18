@@ -1,0 +1,1 @@
+When I was a child, I spake as a child, I understood as a child, I thought as a child: but when I became a man, I put away childish things.

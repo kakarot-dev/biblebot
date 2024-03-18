@@ -1,0 +1,1 @@
+And when he had thus spoken, the king rose up, and the governor, and Bernice, and they that sat with them:

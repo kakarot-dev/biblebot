@@ -1,0 +1,1 @@
+He maketh a path to shine after him; one would think the deep to be hoary.

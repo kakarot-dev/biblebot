@@ -1,0 +1,1 @@
+Then Philip went down to the city of Samaria, and preached Christ unto them.

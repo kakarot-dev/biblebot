@@ -1,0 +1,1 @@
+Strengthen ye the weak hands, and confirm the feeble knees.

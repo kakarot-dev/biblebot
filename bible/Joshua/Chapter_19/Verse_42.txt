@@ -1,0 +1,1 @@
+And Shaalabbin, and Ajalon, and Jethlah,

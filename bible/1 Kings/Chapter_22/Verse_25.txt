@@ -1,0 +1,1 @@
+And Micaiah said, Behold, thou shalt see in that day, when thou shalt go into an inner chamber to hide thyself.

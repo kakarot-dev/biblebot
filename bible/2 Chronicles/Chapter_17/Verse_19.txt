@@ -1,0 +1,1 @@
+These waited on the king, beside those whom the king put in the fenced cities throughout all Judah.

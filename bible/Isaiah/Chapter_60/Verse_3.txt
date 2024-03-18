@@ -1,0 +1,1 @@
+And the Gentiles shall come to thy light, and kings to the brightness of thy rising.

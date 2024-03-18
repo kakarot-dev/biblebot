@@ -1,0 +1,1 @@
+And all countries came into Egypt to Joseph for to buy corn; because that the famine was so sore in all lands.

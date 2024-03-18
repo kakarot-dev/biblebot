@@ -1,0 +1,1 @@
+(There are eleven days' journey from Horeb by the way of mount Seir unto Kadeshbarnea.)

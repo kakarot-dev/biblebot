@@ -1,0 +1,1 @@
+And the LORD appointed a set time, saying, To morrow the LORD shall do this thing in the land.

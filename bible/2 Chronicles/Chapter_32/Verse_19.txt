@@ -1,0 +1,1 @@
+And they spake against the God of Jerusalem, as against the gods of the people of the earth, which were the work of the hands of man.

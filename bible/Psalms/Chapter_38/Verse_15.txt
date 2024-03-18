@@ -1,0 +1,1 @@
+For in thee, O LORD, do I hope: thou wilt hear, O Lord my God.

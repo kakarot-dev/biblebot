@@ -1,0 +1,1 @@
+And they removed from the desert of Sinai, and pitched at Kibrothhattaavah.

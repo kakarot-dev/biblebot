@@ -1,0 +1,1 @@
+And all the elders of that city, that are next unto the slain man, shall wash their hands over the heifer that is beheaded in the valley:

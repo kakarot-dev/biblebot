@@ -1,0 +1,1 @@
+Thou shalt not give him thy money upon usury, nor lend him thy victuals for increase.

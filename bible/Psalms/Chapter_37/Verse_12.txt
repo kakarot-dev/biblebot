@@ -1,0 +1,1 @@
+The wicked plotteth against the just, and gnasheth upon him with his teeth.

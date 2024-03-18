@@ -1,0 +1,1 @@
+A day of the trumpet and alarm against the fenced cities, and against the high towers.

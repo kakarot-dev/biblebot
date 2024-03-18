@@ -1,0 +1,1 @@
+Offer unto God thanksgiving; and pay thy vows unto the most High:

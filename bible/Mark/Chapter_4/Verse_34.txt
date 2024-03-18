@@ -1,0 +1,1 @@
+But without a parable spake he not unto them: and when they were alone, he expounded all things to his disciples.

@@ -1,0 +1,1 @@
+So ought men to love their wives as their own bodies. He that loveth his wife loveth himself.

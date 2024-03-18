@@ -1,0 +1,1 @@
+He disappointeth the devices of the crafty, so that their hands cannot perform their enterprise.

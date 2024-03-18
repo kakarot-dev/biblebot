@@ -1,0 +1,1 @@
+Who can bring a clean thing out of an unclean? not one.

@@ -1,0 +1,1 @@
+The ox knoweth his owner, and the ass his master's crib: but Israel doth not know, my people doth not consider.

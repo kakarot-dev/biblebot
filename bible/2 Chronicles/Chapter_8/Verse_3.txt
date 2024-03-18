@@ -1,0 +1,1 @@
+And Solomon went to Hamathzobah, and prevailed against it.

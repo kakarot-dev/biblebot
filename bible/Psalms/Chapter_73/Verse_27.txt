@@ -1,0 +1,1 @@
+For, lo, they that are far from thee shall perish: thou hast destroyed all them that go a whoring from thee.

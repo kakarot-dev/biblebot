@@ -1,0 +1,1 @@
+This we will do to them; we will even let them live, lest wrath be upon us, because of the oath which we sware unto them.

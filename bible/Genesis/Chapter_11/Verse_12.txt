@@ -1,0 +1,1 @@
+And Arphaxad lived five and thirty years, and begat Salah:

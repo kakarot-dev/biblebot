@@ -1,0 +1,1 @@
+He that speaketh flattery to his friends, even the eyes of his children shall fail.

@@ -1,0 +1,1 @@
+And it shall come to pass, that thy choicest valleys shall be full of chariots, and the horsemen shall set themselves in array at the gate.

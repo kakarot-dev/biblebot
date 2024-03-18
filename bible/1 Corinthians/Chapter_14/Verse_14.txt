@@ -1,0 +1,1 @@
+For if I pray in an unknown tongue, my spirit prayeth, but my understanding is unfruitful.

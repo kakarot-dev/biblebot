@@ -1,0 +1,1 @@
+And truly, if they had been mindful of that country from whence they came out, they might have had opportunity to have returned.

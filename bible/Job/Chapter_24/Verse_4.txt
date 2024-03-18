@@ -1,0 +1,1 @@
+They turn the needy out of the way: the poor of the earth hide themselves together.

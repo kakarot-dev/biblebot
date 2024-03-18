@@ -1,0 +1,1 @@
+Consider mine enemies; for they are many; and they hate me with cruel hatred.

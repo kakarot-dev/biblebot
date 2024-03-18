@@ -1,0 +1,1 @@
+Stay me with flagons, comfort me with apples: for I am sick of love.

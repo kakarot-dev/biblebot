@@ -1,0 +1,1 @@
+And he withdrew himself into the wilderness, and prayed.

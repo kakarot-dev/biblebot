@@ -1,0 +1,1 @@
+But I will send a fire upon Teman, which shall devour the palaces of Bozrah.

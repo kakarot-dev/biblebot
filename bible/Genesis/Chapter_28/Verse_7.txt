@@ -1,0 +1,1 @@
+And that Jacob obeyed his father and his mother, and was gone to Padanaram;

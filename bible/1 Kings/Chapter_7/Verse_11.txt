@@ -1,0 +1,1 @@
+And above were costly stones, after the measures of hewed stones, and cedars.

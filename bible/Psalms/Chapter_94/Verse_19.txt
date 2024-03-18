@@ -1,0 +1,1 @@
+In the multitude of my thoughts within me thy comforts delight my soul.

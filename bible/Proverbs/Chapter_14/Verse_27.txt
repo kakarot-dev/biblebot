@@ -1,0 +1,1 @@
+The fear of the LORD is a fountain of life, to depart from the snares of death.

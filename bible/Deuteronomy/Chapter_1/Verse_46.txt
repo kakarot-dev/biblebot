@@ -1,0 +1,1 @@
+So ye abode in Kadesh many days, according unto the days that ye abode there.

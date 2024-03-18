@@ -1,0 +1,1 @@
+And afterward the people removed from Hazeroth, and pitched in the wilderness of Paran.

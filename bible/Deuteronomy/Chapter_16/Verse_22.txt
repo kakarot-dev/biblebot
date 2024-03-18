@@ -1,0 +1,1 @@
+Neither shalt thou set thee up any image; which the LORD thy God hateth.

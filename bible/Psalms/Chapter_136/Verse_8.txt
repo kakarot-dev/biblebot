@@ -1,0 +1,1 @@
+The sun to rule by day: for his mercy endureth for ever:

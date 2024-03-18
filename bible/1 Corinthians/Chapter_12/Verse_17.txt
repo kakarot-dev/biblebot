@@ -1,0 +1,1 @@
+If the whole body were an eye, where were the hearing? If the whole were hearing, where were the smelling?

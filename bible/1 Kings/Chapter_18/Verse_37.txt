@@ -1,0 +1,1 @@
+Hear me, O LORD, hear me, that this people may know that thou art the LORD God, and that thou hast turned their heart back again.

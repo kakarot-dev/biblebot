@@ -1,0 +1,1 @@
+The range of the mountains is his pasture, and he searcheth after every green thing.

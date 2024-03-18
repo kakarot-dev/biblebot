@@ -1,0 +1,1 @@
+Therefore shall they have no inheritance among their brethren: the LORD is their inheritance, as he hath said unto them.

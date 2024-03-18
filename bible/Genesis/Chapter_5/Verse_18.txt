@@ -1,0 +1,1 @@
+And Jared lived an hundred sixty and two years, and he begat Enoch:

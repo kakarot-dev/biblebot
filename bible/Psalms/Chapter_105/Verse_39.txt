@@ -1,0 +1,1 @@
+He spread a cloud for a covering; and fire to give light in the night.

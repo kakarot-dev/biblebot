@@ -1,0 +1,1 @@
+And when he had saluted them, he declared particularly what things God had wrought among the Gentiles by his ministry.

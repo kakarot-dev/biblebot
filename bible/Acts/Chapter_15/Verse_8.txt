@@ -1,0 +1,1 @@
+And God, which knoweth the hearts, bare them witness, giving them the Holy Ghost, even as he did unto us;

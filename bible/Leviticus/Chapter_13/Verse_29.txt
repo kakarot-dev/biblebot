@@ -1,0 +1,1 @@
+If a man or woman have a plague upon the head or the beard;

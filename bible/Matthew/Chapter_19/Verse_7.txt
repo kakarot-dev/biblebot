@@ -1,0 +1,1 @@
+They say unto him, Why did Moses then command to give a writing of divorcement, and to put her away?

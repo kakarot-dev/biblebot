@@ -1,0 +1,1 @@
+And Joash did that which was right in the sight of the LORD all the days of Jehoiada the priest.

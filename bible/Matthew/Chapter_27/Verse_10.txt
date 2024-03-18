@@ -1,0 +1,1 @@
+And gave them for the potter's field, as the Lord appointed me.

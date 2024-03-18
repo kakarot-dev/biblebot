@@ -1,0 +1,1 @@
+So the king died, and was brought to Samaria; and they buried the king in Samaria.

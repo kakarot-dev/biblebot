@@ -1,0 +1,1 @@
+Yet all this availeth me nothing, so long as I see Mordecai the Jew sitting at the king's gate.

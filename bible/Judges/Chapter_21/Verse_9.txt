@@ -1,0 +1,1 @@
+For the people were numbered, and, behold, there were none of the inhabitants of Jabeshgilead there.

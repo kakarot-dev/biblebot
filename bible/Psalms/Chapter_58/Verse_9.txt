@@ -1,0 +1,1 @@
+Before your pots can feel the thorns, he shall take them away as with a whirlwind, both living, and in his wrath.

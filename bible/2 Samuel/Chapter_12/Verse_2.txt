@@ -1,0 +1,1 @@
+The rich man had exceeding many flocks and herds:

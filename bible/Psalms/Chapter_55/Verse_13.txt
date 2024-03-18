@@ -1,0 +1,1 @@
+But it was thou, a man mine equal, my guide, and mine acquaintance.

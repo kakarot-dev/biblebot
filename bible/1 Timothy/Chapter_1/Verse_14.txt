@@ -1,0 +1,1 @@
+And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.

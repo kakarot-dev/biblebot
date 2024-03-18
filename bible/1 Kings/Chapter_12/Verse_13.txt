@@ -1,0 +1,1 @@
+And the king answered the people roughly, and forsook the old men's counsel that they gave him;

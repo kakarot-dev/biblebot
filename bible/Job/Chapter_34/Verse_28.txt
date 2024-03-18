@@ -1,0 +1,1 @@
+So that they cause the cry of the poor to come unto him, and he heareth the cry of the afflicted.

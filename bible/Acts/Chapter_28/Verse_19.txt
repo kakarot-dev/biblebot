@@ -1,0 +1,1 @@
+But when the Jews spake against it, I was constrained to appeal unto Caesar; not that I had ought to accuse my nation of.

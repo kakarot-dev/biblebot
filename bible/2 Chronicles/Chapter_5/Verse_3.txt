@@ -1,0 +1,1 @@
+Wherefore all the men of Israel assembled themselves unto the king in the feast which was in the seventh month.

@@ -1,0 +1,1 @@
+When men are cast down, then thou shalt say, There is lifting up; and he shall save the humble person.

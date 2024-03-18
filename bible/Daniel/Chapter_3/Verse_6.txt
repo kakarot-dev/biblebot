@@ -1,0 +1,1 @@
+And whoso falleth not down and worshippeth shall the same hour be cast into the midst of a burning fiery furnace.

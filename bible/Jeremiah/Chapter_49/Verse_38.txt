@@ -1,0 +1,1 @@
+And I will set my throne in Elam, and will destroy from thence the king and the princes, saith the LORD.

@@ -1,0 +1,1 @@
+Go and cry unto the gods which ye have chosen; let them deliver you in the time of your tribulation.

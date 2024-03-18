@@ -1,0 +1,1 @@
+I beseech Euodias, and beseech Syntyche, that they be of the same mind in the Lord.

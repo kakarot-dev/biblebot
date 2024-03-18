@@ -1,0 +1,1 @@
+And the sun was darkened, and the veil of the temple was rent in the midst.

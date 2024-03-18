@@ -1,0 +1,1 @@
+And by the border of Issachar, from the east side unto the west side, Zebulun a portion.

@@ -1,0 +1,1 @@
+When my father and my mother forsake me, then the LORD will take me up.

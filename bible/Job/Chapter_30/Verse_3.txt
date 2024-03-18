@@ -1,0 +1,1 @@
+For want and famine they were solitary; fleeing into the wilderness in former time desolate and waste.

@@ -1,0 +1,1 @@
+And one of them smote the servant of the high priest, and cut off his right ear.

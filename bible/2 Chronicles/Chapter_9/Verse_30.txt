@@ -1,0 +1,1 @@
+And Solomon reigned in Jerusalem over all Israel forty years.

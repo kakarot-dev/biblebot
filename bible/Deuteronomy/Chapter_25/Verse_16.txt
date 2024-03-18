@@ -1,0 +1,1 @@
+For all that do such things, and all that do unrighteously, are an abomination unto the LORD thy God.

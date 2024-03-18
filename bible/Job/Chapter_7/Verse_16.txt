@@ -1,0 +1,1 @@
+I loathe it; I would not live alway: let me alone; for my days are vanity.

@@ -1,0 +1,1 @@
+And Esau seeing that the daughters of Canaan pleased not Isaac his father;

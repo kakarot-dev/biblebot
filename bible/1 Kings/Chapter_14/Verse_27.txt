@@ -1,0 +1,1 @@
+And king Rehoboam made in their stead brasen shields, and committed them unto the hands of the chief of the guard, which kept the door of the king's house.

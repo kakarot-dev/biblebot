@@ -1,0 +1,1 @@
+Remember what Amalek did unto thee by the way, when ye were come forth out of Egypt;

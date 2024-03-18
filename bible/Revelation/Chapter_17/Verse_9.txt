@@ -1,0 +1,1 @@
+And here is the mind which hath wisdom. The seven heads are seven mountains, on which the woman sitteth.

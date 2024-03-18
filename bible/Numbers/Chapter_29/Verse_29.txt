@@ -1,0 +1,1 @@
+And on the sixth day eight bullocks, two rams, and fourteen lambs of the first year without blemish:

@@ -1,0 +1,1 @@
+And he did that which was evil in the eyes of the LORD, according to all that Jehoiakim had done.

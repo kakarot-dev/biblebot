@@ -1,0 +1,1 @@
+And therefore it was imputed to him for righteousness.

@@ -1,0 +1,1 @@
+And Pathrusim, and Casluhim, (out of whom came Philistim,) and Caphtorim.

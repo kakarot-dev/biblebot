@@ -1,0 +1,1 @@
+And ye shall compass the city, all ye men of war, and go round about the city once. Thus shalt thou do six days.

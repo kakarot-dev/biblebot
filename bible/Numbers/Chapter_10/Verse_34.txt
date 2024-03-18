@@ -1,0 +1,1 @@
+And the cloud of the LORD was upon them by day, when they went out of the camp.

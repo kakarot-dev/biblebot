@@ -1,0 +1,1 @@
+And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it.

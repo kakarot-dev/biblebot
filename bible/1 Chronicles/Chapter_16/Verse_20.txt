@@ -1,0 +1,1 @@
+And when they went from nation to nation, and from one kingdom to another people;

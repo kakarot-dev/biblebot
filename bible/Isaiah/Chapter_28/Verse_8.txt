@@ -1,0 +1,1 @@
+For all tables are full of vomit and filthiness, so that there is no place clean.

@@ -1,0 +1,1 @@
+But lusted exceedingly in the wilderness, and tempted God in the desert.

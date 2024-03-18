@@ -1,0 +1,1 @@
+Then Daniel went to his house, and made the thing known to Hananiah, Mishael, and Azariah, his companions:

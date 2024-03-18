@@ -1,0 +1,1 @@
+And every offering of all the holy things of the children of Israel, which they bring unto the priest, shall be his.

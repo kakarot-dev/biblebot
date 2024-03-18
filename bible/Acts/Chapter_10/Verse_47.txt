@@ -1,0 +1,1 @@
+Can any man forbid water, that these should not be baptized, which have received the Holy Ghost as well as we?

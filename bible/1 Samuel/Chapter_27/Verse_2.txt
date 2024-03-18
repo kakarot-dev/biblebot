@@ -1,0 +1,1 @@
+And David arose, and he passed over with the six hundred men that were with him unto Achish, the son of Maoch, king of Gath.

@@ -1,0 +1,1 @@
+And the anger of the LORD was kindled against Uzza, and he smote him, because he put his hand to the ark: and there he died before God.

@@ -1,0 +1,1 @@
+And Solomon's provision for one day was thirty measures of fine flour, and threescore measures of meal,

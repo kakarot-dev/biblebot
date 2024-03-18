@@ -1,0 +1,1 @@
+And it came to pass, when Joab observed the city, that he assigned Uriah unto a place where he knew that valiant men were.

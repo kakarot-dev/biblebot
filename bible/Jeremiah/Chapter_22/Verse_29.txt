@@ -1,0 +1,1 @@
+O earth, earth, earth, hear the word of the LORD.

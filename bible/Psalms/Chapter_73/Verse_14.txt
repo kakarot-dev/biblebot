@@ -1,0 +1,1 @@
+For all the day long have I been plagued, and chastened every morning.

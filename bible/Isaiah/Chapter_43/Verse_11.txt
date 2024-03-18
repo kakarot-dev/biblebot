@@ -1,0 +1,1 @@
+I, even I, am the LORD; and beside me there is no saviour.

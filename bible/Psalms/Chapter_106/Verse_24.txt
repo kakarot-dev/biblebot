@@ -1,0 +1,1 @@
+Yea, they despised the pleasant land, they believed not his word:

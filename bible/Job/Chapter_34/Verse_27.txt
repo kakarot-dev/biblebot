@@ -1,0 +1,1 @@
+Because they turned back from him, and would not consider any of his ways:

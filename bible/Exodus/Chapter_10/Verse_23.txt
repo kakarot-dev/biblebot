@@ -1,0 +1,1 @@
+They saw not one another, neither rose any from his place for three days: but all the children of Israel had light in their dwellings.

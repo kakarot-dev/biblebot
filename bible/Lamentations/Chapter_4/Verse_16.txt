@@ -1,0 +1,1 @@
+The anger of the LORD hath divided them; he will no more regard them: they respected not the persons of the priests, they favoured not the elders.

@@ -1,0 +1,1 @@
+O deliver not the soul of thy turtledove unto the multitude of the wicked: forget not the congregation of thy poor for ever.

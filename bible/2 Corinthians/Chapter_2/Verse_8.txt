@@ -1,0 +1,1 @@
+Wherefore I beseech you that ye would confirm your love toward him.

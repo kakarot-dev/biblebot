@@ -1,0 +1,1 @@
+In the city is left desolation, and the gate is smitten with destruction.

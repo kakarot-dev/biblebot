@@ -1,0 +1,1 @@
+Moreover they reckoned not with the men, into whose hand they delivered the money to be bestowed on workmen: for they dealt faithfully.

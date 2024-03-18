@@ -1,0 +1,1 @@
+In the selfsame day was Abraham circumcised, and Ishmael his son.

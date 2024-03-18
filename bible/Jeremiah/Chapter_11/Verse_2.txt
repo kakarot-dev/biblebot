@@ -1,0 +1,1 @@
+Hear ye the words of this covenant, and speak unto the men of Judah, and to the inhabitants of Jerusalem;

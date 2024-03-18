@@ -1,0 +1,1 @@
+And they rose up the same hour, and returned to Jerusalem, and found the eleven gathered together, and them that were with them,

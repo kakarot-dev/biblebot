@@ -1,0 +1,1 @@
+Neither let us tempt Christ, as some of them also tempted, and were destroyed of serpents.

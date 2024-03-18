@@ -1,0 +1,1 @@
+And he shall put off his garments, and put on other garments, and carry forth the ashes without the camp unto a clean place.

@@ -1,0 +1,1 @@
+And they could not take hold of his words before the people: and they marvelled at his answer, and held their peace.

@@ -1,0 +1,1 @@
+I was a father to the poor: and the cause which I knew not I searched out.

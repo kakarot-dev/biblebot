@@ -1,0 +1,1 @@
+The wicked have laid a snare for me: yet I erred not from thy precepts.

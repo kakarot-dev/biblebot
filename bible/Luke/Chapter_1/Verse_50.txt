@@ -1,0 +1,1 @@
+And his mercy is on them that fear him from generation to generation.

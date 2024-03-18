@@ -1,0 +1,1 @@
+Then said he unto all Israel, Be ye on one side, and I and Jonathan my son will be on the other side. And the people said unto Saul, Do what seemeth good unto thee.

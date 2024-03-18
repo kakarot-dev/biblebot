@@ -1,0 +1,1 @@
+Thou shalt not be affrighted at them: for the LORD thy God is among you, a mighty God and terrible.

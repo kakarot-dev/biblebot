@@ -1,0 +1,1 @@
+The table, and all the vessels thereof, and the shewbread,

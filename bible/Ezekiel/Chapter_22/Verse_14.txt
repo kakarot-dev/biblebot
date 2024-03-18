@@ -1,0 +1,1 @@
+Can thine heart endure, or can thine hands be strong, in the days that I shall deal with thee? I the LORD have spoken it, and will do it.

@@ -1,0 +1,1 @@
+His eyes shall see his destruction, and he shall drink of the wrath of the Almighty.

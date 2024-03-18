@@ -1,0 +1,1 @@
+But whoso hearkeneth unto me shall dwell safely, and shall be quiet from fear of evil.

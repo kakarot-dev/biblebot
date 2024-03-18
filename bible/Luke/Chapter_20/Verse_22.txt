@@ -1,0 +1,1 @@
+Is it lawful for us to give tribute unto Caesar, or no?

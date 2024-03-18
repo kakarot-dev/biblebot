@@ -1,0 +1,1 @@
+He paweth in the valley, and rejoiceth in his strength: he goeth on to meet the armed men.

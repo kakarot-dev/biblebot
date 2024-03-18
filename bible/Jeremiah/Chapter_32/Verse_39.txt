@@ -1,0 +1,1 @@
+And I will give them one heart, and one way, that they may fear me for ever, for the good of them, and of their children after them:

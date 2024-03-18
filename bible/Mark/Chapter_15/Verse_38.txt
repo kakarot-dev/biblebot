@@ -1,0 +1,1 @@
+And the veil of the temple was rent in twain from the top to the bottom.

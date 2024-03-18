@@ -1,0 +1,1 @@
+They are gone over the passage: they have taken up their lodging at Geba; Ramah is afraid; Gibeah of Saul is fled.

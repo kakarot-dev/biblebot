@@ -1,0 +1,1 @@
+Thou shalt not uncover the nakedness of thy father's brother, thou shalt not approach to his wife: she is thine aunt.

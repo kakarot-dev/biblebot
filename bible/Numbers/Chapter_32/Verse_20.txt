@@ -1,0 +1,1 @@
+And Moses said unto them, If ye will do this thing, if ye will go armed before the LORD to war,

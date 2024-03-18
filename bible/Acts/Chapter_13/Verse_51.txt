@@ -1,0 +1,1 @@
+But they shook off the dust of their feet against them, and came unto Iconium.

@@ -1,0 +1,1 @@
+But Peter and John answered and said unto them, Whether it be right in the sight of God to hearken unto you more than unto God, judge ye.

@@ -1,0 +1,1 @@
+I will meditate also of all thy work, and talk of thy doings.

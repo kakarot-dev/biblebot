@@ -1,0 +1,1 @@
+Every one that passeth among them that are numbered, from twenty years old and above, shall give an offering unto the LORD.

@@ -1,0 +1,1 @@
+He looketh on the earth, and it trembleth: he toucheth the hills, and they smoke.

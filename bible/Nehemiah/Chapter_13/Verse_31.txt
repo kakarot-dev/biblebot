@@ -1,0 +1,1 @@
+And for the wood offering, at times appointed, and for the firstfruits. Remember me, O my God, for good.

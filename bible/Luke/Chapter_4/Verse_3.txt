@@ -1,0 +1,1 @@
+And the devil said unto him, If thou be the Son of God, command this stone that it be made bread.

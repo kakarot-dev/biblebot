@@ -1,0 +1,1 @@
+And by great waters the seed of Sihor, the harvest of the river, is her revenue; and she is a mart of nations.

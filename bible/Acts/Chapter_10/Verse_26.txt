@@ -1,0 +1,1 @@
+But Peter took him up, saying, Stand up; I myself also am a man.

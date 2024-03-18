@@ -1,0 +1,1 @@
+In the wilderness, Betharabah, Middin, and Secacah,

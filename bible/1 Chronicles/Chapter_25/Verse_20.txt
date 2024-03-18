@@ -1,0 +1,1 @@
+The thirteenth to Shubael, he, his sons, and his brethren, were twelve:

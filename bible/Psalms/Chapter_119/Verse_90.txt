@@ -1,0 +1,1 @@
+Thy faithfulness is unto all generations: thou hast established the earth, and it abideth.

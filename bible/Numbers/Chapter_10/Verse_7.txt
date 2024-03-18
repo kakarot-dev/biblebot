@@ -1,0 +1,1 @@
+But when the congregation is to be gathered together, ye shall blow, but ye shall not sound an alarm.

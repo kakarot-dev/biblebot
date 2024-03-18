@@ -1,0 +1,1 @@
+Who hath formed a god, or molten a graven image that is profitable for nothing?

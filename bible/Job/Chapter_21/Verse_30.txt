@@ -1,0 +1,1 @@
+That the wicked is reserved to the day of destruction? they shall be brought forth to the day of wrath.

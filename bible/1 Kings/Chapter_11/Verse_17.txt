@@ -1,0 +1,1 @@
+That Hadad fled, he and certain Edomites of his father's servants with him, to go into Egypt; Hadad being yet a little child.

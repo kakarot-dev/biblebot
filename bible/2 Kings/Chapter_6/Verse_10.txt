@@ -1,0 +1,1 @@
+And the king of Israel sent to the place which the man of God told him and warned him of, and saved himself there, not once nor twice.

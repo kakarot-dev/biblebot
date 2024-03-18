@@ -1,0 +1,1 @@
+For thou hast hid their heart from understanding: therefore shalt thou not exalt them.

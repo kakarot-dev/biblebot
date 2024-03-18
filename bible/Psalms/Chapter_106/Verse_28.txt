@@ -1,0 +1,1 @@
+They joined themselves also unto Baalpeor, and ate the sacrifices of the dead.

@@ -1,0 +1,1 @@
+I have heard the check of my reproach, and the spirit of my understanding causeth me to answer.

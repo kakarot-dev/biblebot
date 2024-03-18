@@ -1,0 +1,1 @@
+But we will bless the LORD from this time forth and for evermore. Praise the LORD.

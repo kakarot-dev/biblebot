@@ -1,0 +1,1 @@
+But refuse profane and old wives' fables, and exercise thyself rather unto godliness.

@@ -1,0 +1,1 @@
+Behold, God exalteth by his power: who teacheth like him?

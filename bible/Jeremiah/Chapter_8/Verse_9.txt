@@ -1,0 +1,1 @@
+The wise men are ashamed, they are dismayed and taken: lo, they have rejected the word of the LORD; and what wisdom is in them?

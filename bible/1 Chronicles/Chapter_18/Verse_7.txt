@@ -1,0 +1,1 @@
+And David took the shields of gold that were on the servants of Hadarezer, and brought them to Jerusalem.

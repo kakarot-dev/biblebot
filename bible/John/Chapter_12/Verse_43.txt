@@ -1,0 +1,1 @@
+For they loved the praise of men more than the praise of God.

@@ -1,0 +1,1 @@
+But if our gospel be hid, it is hid to them that are lost:

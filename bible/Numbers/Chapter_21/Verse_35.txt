@@ -1,0 +1,1 @@
+So they smote him, and his sons, and all his people, until there was none left him alive: and they possessed his land.

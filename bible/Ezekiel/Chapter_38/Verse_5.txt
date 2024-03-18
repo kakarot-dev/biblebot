@@ -1,0 +1,1 @@
+Persia, Ethiopia, and Libya with them; all of them with shield and helmet:

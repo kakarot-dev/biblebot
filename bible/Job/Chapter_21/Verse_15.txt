@@ -1,0 +1,1 @@
+What is the Almighty, that we should serve him? and what profit should we have, if we pray unto him?

@@ -1,0 +1,1 @@
+I said in mine heart concerning the estate of the sons of men, that God might manifest them, and that they might see that they themselves are beasts.

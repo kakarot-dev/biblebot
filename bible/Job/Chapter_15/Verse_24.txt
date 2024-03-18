@@ -1,0 +1,1 @@
+Trouble and anguish shall make him afraid; they shall prevail against him, as a king ready to the battle.

@@ -1,0 +1,1 @@
+And one kid of the goats for a sin offering unto the LORD shall be offered, beside the continual burnt offering, and his drink offering.

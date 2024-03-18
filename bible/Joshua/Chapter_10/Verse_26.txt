@@ -1,0 +1,1 @@
+And afterward Joshua smote them, and slew them, and hanged them on five trees: and they were hanging upon the trees until the evening.

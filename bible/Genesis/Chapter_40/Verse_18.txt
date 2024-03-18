@@ -1,0 +1,1 @@
+And Joseph answered and said, This is the interpretation thereof: The three baskets are three days:

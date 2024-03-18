@@ -1,0 +1,1 @@
+Then they sent to Jezebel, saying, Naboth is stoned, and is dead.

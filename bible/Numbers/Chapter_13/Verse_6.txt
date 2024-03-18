@@ -1,0 +1,1 @@
+Of the tribe of Judah, Caleb the son of Jephunneh.

@@ -1,0 +1,1 @@
+And such trust have we through Christ to God-ward:

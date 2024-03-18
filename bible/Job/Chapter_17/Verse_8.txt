@@ -1,0 +1,1 @@
+Upright men shall be astonied at this, and the innocent shall stir up himself against the hypocrite.

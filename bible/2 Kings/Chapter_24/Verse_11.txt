@@ -1,0 +1,1 @@
+And Nebuchadnezzar king of Babylon came against the city, and his servants did besiege it.

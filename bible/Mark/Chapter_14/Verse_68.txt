@@ -1,0 +1,1 @@
+But he denied, saying, I know not, neither understand I what thou sayest. And he went out into the porch; and the cock crew.

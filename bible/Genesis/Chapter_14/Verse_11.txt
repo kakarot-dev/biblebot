@@ -1,0 +1,1 @@
+And they took all the goods of Sodom and Gomorrah, and all their victuals, and went their way.

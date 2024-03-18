@@ -1,0 +1,1 @@
+Remembering mine affliction and my misery, the wormwood and the gall.

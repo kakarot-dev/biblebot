@@ -1,0 +1,1 @@
+For who hath stood in the counsel of the LORD, and hath perceived and heard his word? who hath marked his word, and heard it?

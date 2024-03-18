@@ -1,0 +1,1 @@
+For he looketh to the ends of the earth, and seeth under the whole heaven;

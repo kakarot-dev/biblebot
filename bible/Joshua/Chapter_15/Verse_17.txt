@@ -1,0 +1,1 @@
+And Othniel the son of Kenaz, the brother of Caleb, took it: and he gave him Achsah his daughter to wife.

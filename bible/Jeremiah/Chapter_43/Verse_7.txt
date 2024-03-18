@@ -1,0 +1,1 @@
+So they came into the land of Egypt: for they obeyed not the voice of the LORD: thus came they even to Tahpanhes.

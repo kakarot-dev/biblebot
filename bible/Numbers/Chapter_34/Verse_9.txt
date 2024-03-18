@@ -1,0 +1,1 @@
+And the border shall go on to Ziphron, and the goings out of it shall be at Hazarenan: this shall be your north border.

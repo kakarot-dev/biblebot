@@ -1,0 +1,1 @@
+He evil entreateth the barren that beareth not: and doeth not good to the widow.

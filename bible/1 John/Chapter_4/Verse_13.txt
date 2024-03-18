@@ -1,0 +1,1 @@
+Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit.

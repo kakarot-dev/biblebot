@@ -1,0 +1,1 @@
+Drink no longer water, but use a little wine for thy stomach's sake and thine often infirmities.

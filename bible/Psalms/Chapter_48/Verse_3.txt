@@ -1,0 +1,1 @@
+God is known in her palaces for a refuge.

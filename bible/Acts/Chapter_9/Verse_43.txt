@@ -1,0 +1,1 @@
+And it came to pass, that he tarried many days in Joppa with one Simon a tanner.

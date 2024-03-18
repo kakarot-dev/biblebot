@@ -1,0 +1,1 @@
+For truly my words shall not be false: he that is perfect in knowledge is with thee.

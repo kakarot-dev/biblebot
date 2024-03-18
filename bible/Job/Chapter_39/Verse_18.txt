@@ -1,0 +1,1 @@
+What time she lifteth up herself on high, she scorneth the horse and his rider.

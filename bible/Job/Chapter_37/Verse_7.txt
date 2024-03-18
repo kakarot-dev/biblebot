@@ -1,0 +1,1 @@
+He sealeth up the hand of every man; that all men may know his work.

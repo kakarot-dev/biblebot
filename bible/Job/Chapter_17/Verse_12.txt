@@ -1,0 +1,1 @@
+They change the night into day: the light is short because of darkness.

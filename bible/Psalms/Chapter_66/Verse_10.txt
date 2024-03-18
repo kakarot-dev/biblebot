@@ -1,0 +1,1 @@
+For thou, O God, hast proved us: thou hast tried us, as silver is tried.

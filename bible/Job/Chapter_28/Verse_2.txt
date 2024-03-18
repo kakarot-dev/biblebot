@@ -1,0 +1,1 @@
+Iron is taken out of the earth, and brass is molten out of the stone.

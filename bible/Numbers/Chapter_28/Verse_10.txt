@@ -1,0 +1,1 @@
+This is the burnt offering of every sabbath, beside the continual burnt offering, and his drink offering.

@@ -1,0 +1,1 @@
+Thou shalt not plant thee a grove of any trees near unto the altar of the LORD thy God, which thou shalt make thee.

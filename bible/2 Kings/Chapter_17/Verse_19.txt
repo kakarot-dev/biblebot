@@ -1,0 +1,1 @@
+Also Judah kept not the commandments of the LORD their God, but walked in the statutes of Israel which they made.

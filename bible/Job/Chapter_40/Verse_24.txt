@@ -1,0 +1,1 @@
+He taketh it with his eyes: his nose pierceth through snares.

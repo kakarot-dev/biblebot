@@ -1,0 +1,1 @@
+For thus hath the LORD said, The whole land shall be desolate; yet will I not make a full end.

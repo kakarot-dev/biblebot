@@ -1,0 +1,1 @@
+Simeon hath declared how God at the first did visit the Gentiles, to take out of them a people for his name.

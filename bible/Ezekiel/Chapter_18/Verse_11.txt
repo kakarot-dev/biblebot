@@ -1,0 +1,1 @@
+And that doeth not any of those duties, but even hath eaten upon the mountains, and defiled his neighbour's wife,

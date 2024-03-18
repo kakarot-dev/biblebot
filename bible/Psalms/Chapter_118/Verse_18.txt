@@ -1,0 +1,1 @@
+The LORD hath chastened me sore: but he hath not given me over unto death.

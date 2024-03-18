@@ -1,0 +1,1 @@
+And thy meat which thou shalt eat shall be by weight, twenty shekels a day: from time to time shalt thou eat it.

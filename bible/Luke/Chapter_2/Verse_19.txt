@@ -1,0 +1,1 @@
+But Mary kept all these things, and pondered them in her heart.

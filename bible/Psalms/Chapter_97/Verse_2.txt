@@ -1,0 +1,1 @@
+Clouds and darkness are round about him: righteousness and judgment are the habitation of his throne.

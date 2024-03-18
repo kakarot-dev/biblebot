@@ -1,0 +1,1 @@
+And it be told thee, and thou hast heard of it, and enquired diligently, and, behold, it be true, and the thing certain, that such abomination is wrought in Israel:

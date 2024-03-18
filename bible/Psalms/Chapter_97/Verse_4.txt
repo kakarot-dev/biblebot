@@ -1,0 +1,1 @@
+His lightnings enlightened the world: the earth saw, and trembled.

@@ -1,0 +1,1 @@
+And the sons of Javan; Elishah, and Tarshish, Kittim, and Dodanim.

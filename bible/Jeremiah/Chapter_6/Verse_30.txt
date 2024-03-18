@@ -1,0 +1,1 @@
+Reprobate silver shall men call them, because the LORD hath rejected them.

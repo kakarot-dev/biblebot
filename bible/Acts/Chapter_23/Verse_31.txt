@@ -1,0 +1,1 @@
+Then the soldiers, as it was commanded them, took Paul, and brought him by night to Antipatris.

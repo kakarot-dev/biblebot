@@ -1,0 +1,1 @@
+And Canaan begat Zidon his firstborn, and Heth,

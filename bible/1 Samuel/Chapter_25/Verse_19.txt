@@ -1,0 +1,1 @@
+And she said unto her servants, Go on before me; behold, I come after you. But she told not her husband Nabal.

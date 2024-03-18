@@ -1,0 +1,1 @@
+Thus they changed their glory into the similitude of an ox that eateth grass.

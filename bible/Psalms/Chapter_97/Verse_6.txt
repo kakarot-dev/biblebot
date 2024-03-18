@@ -1,0 +1,1 @@
+The heavens declare his righteousness, and all the people see his glory.

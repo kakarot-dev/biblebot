@@ -1,0 +1,1 @@
+And he hasted, and took the ashes away from his face; and the king of Israel discerned him that he was of the prophets.

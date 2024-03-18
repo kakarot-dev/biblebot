@@ -1,0 +1,1 @@
+Therefore thus saith the LORD; Behold, I will cast thee from off the face of the earth: this year thou shalt die, because thou hast taught rebellion against the LORD.

@@ -1,0 +1,1 @@
+Then they cried with a loud voice in the Jews' speech unto the people of Jerusalem that were on the wall, to affright them, and to trouble them; that they might take the city.

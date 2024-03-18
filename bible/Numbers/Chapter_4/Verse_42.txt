@@ -1,0 +1,1 @@
+And those that were numbered of the families of the sons of Merari, throughout their families, by the house of their fathers,

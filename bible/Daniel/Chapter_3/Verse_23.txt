@@ -1,0 +1,1 @@
+And these three men, Shadrach, Meshach, and Abednego, fell down bound into the midst of the burning fiery furnace.

@@ -1,0 +1,1 @@
+How long, ye simple ones, will ye love simplicity? and the scorners delight in their scorning, and fools hate knowledge?

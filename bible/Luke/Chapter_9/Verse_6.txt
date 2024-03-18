@@ -1,0 +1,1 @@
+And they departed, and went through the towns, preaching the gospel, and healing every where.

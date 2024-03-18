@@ -1,0 +1,1 @@
+Even an heritage unto Israel his servant: for his mercy endureth for ever.

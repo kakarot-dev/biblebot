@@ -1,0 +1,1 @@
+Number the children of Levi after the house of their fathers, by their families: every male from a month old and upward shalt thou number them.

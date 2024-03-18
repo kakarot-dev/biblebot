@@ -1,0 +1,1 @@
+And Serug lived thirty years, and begat Nahor:

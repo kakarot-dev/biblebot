@@ -1,0 +1,1 @@
+Then take silver and gold, and make crowns, and set them upon the head of Joshua the son of Josedech, the high priest;
